@@ -64,21 +64,21 @@ A melodic trance tune with stream-of-consciousness lyrics that become stranger w
 
 Perfect progressive trance. A melody that, like the last 2 tracks, is atmospheric, loops on itself, and endlessly contagious, without seeming repetitive. This song is absorbing - the feeling throughout is impossible to describe, since like I said before...dancing about architecture. Just download the track. It's incredible. (Was another mega-European hit. I don't know the details specifically, but it doesn't matter).
 
-Nalin & Kane - Beachball [1996] [ibiza trance]
+[Nalin & Kane - Beachball](https://www.youtube.com/watch?v=28wwqbyRBNQ) [1996] [ibiza trance]
 
 Gorgeous, elegant, and never tiring. It's quite possible that I've listened to this track more times than any other, probably my personal favorite. Built out of tribal, yet melodic beats (the "Nalin and Kane sound"), relaxing and inobtrusive vocals, and a slow, subtle build that takes its time to breakdown. When it does breakdown, air strings and seagulls wash and flow around each other as if musically taking flight to a Mediterannean sky over a sunset-golden beach. When the breakdown ends, "Becahball" slowly floats back to earth, before spending the remainder of the track rippling back and forth between the sky and the sand.
 
 {arguable - ibiza house}
 
-Paragliders - Paraglide [1993] [classic trance]
+[Paragliders - Paraglide](https://www.youtube.com/watch?v=c48baEsPM4Y) [1993] [classic trance]
 
-DnTel - (This is) The Dream of Evan and Chan (Superpitcher Kompakt remix) [2002] [minimal trance]
+[DnTel - (This is) The Dream of Evan and Chan (Superpitcher Kompakt remix)](https://www.youtube.com/watch?v=9PVorE74HfA) [2002] [minimal trance]
 
 This is probably the only trance track ever created with vocals worth listening to. But it doesn't rest on them, just allowing them to sparsely resonant in a minimal nothing, it raises them, gently bringing them to soaring heights with gorgeous melodies that slowly drown out the surreal beauty of the evocative lyrics. Eventually the glistening bells overtake the words entirely, taking the already flying track into the stratosphere. It's the perfect representative of minimal trance.
 
 {arguble: tech-house/progressive house/microhouse}
 
-Hardfloor - Acperience 1 [1992] [acid trance/classic trance]
+[Hardfloor - Acperience 1](https://www.youtube.com/watch?v=Un4CeV_l3pI) [1992] [acid trance/classic trance]
 
 {arguable - acid}
 
