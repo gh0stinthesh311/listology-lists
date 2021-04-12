@@ -44,17 +44,17 @@ Also, the so-called "original mix" available pretty much everywhere is almost un
 
 That said, this version is a fantastic track, and still one of trance's first. It's beautiful, ethereal, and above all, entrancing.
 
-[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=9vlkm2T9LfE) (Three N' One mix) [1998] [anthem trance/ibiza trance]
+[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=dQw4w9WgXcQ) (Three N' One mix) [1998] [anthem trance/ibiza trance]
 
 The track that defines everything that an ibiza anthem is, full of all of the excess and bombast of the island: pure dancable joy. The track's central hook is a long, arpeggiated melody looping such that the beginning and end melt together into an endless sphere. It sounds like sped-up 70's minimalism run through a 90's dark trance synth with a sub-tribal feel (it's the beats that do this). I'll admit, the build-up is a little bit cliche by now, but it wasn't really at the time, and for second-wave trance, it's as creative as it's going to get, and more than compensated by the spot-on anthem. In a not so surprising twist, this was initially written by one of the fathers of modern trance (Cosmic Baby), back in 1993 (they were always better at trance than the bedroom nerds and the corporate pop machine). It has gotten another remix every single year since 93, most of which are picked up by trance jocks and many of which go back on the club charts (the best is undoubtedly 1997's chart-topping Three N' One remix (although some prefer the 1998 Nalin & Kane version, and classic trance addicts will love the original)).
 
-Future Sound of London - Papua New Guinea [1991] [ambient trance/classic trance]
+[Future Sound of London](https://www.youtube.com/watch?v=IAvHjoLxxh8) - Papua New Guinea [1991] [ambient trance/classic trance]
 
 Released in 1991, this song wasn't even intended to be trance - no one even used the word yet (although there was a fledgling sound growing in the underground house, rave, and techno scenes). It was meant to be ambient breaks, but "Papua New Guinea's" atmosphere was like little other electronic dance released at the time - ethereal, spacy, almost angelic, but still dancefloor-worthy, catchy, and even relaxing. The song instantly became a trance classic once the genre was brought into official existence in 1993, and deservingly so. Like it's predecessor "Age of Love," even today it can be played without sounding the slightest bit dated.
 
 {arguable - ambient breaks}
 
-Underworld - Born Slippy (NUXX). [1995] [classic trance/hard trance]
+[Underworld - Born Slippy (NUXX)](https://www.youtube.com/watch?v=3Fr1x-N3-k8) [1995] [classic trance/hard trance]
 
 A melodic trance tune with stream-of-consciousness lyrics that become stranger with each listen, mainly beacuse they never really had any actual internal logic to begin with. The melody is unforgettably catchy, and contains a nice twist in the middle, in which it goes from being a wistful and pretty little ambient trancer, to a hard and abrasive swedish techno stormer, and pulls both off better than just about anything in either genre. Surprisingly, especially with this being, you know, actually good, this was a huge hit in Europe (it went to number 2 on the world chart in 1996-97), and gets at least two new remixes every year, at least one of which always goes back on the club charts (hopefully 2006 will be an exception? Honestly, they're never going to top the original). So, not only is it one of the best, it's also the most popular to still retain credibility.
 
