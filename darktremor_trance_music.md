@@ -44,7 +44,7 @@ Also, the so-called "original mix" available pretty much everywhere is almost un
 
 That said, this version is a fantastic track, and still one of trance's first. It's beautiful, ethereal, and above all, entrancing.
 
-[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=dQw4w9WgXcQ) (Three N' One mix) [1998] [anthem trance/ibiza trance]
+[Energy 52] - Cafe Del Mar(https://www.youtube.com/watch?v=dQw4w9WgXcQ) (Three N' One mix) [1998] [anthem trance/ibiza trance]
 
 The track that defines everything that an ibiza anthem is, full of all of the excess and bombast of the island: pure dancable joy. The track's central hook is a long, arpeggiated melody looping such that the beginning and end melt together into an endless sphere. It sounds like sped-up 70's minimalism run through a 90's dark trance synth with a sub-tribal feel (it's the beats that do this). I'll admit, the build-up is a little bit cliche by now, but it wasn't really at the time, and for second-wave trance, it's as creative as it's going to get, and more than compensated by the spot-on anthem. In a not so surprising twist, this was initially written by one of the fathers of modern trance (Cosmic Baby), back in 1993 (they were always better at trance than the bedroom nerds and the corporate pop machine). It has gotten another remix every single year since 93, most of which are picked up by trance jocks and many of which go back on the club charts (the best is undoubtedly 1997's chart-topping Three N' One remix (although some prefer the 1998 Nalin & Kane version, and classic trance addicts will love the original)).
 
@@ -60,7 +60,7 @@ A melodic trance tune with stream-of-consciousness lyrics that become stranger w
 
 {arguable - melodic techo(?)}
 
-Sasha - Xpander [1999] [progressive trance]
+[Sasha - Xpander](https://www.youtube.com/watch?v=z3Gu7CXfRdA) [1999] [progressive trance]
 
 Perfect progressive trance. A melody that, like the last 2 tracks, is atmospheric, loops on itself, and endlessly contagious, without seeming repetitive. This song is absorbing - the feeling throughout is impossible to describe, since like I said before...dancing about architecture. Just download the track. It's incredible. (Was another mega-European hit. I don't know the details specifically, but it doesn't matter).
 
