@@ -84,37 +84,37 @@ This is probably the only trance track ever created with vocals worth listening 
 
 {arguable - acid}
 
-Hybrid - Symphony [1997] [orchestral trance]
+[Hybrid - Symphony](https://www.youtube.com/watch?v=FA03Z7p5O-8) [1997] [orchestral trance]
 
 Wow. Forget Adagio for Strings, forget Protect Your Mind, forget ****ing Airwave, symphonic trance was created and destroyed with this track. Everything trance is supposed to make you feel, and almost everything classical is supposed to do can be found here in this amazing song. Easy to dance to, creative beats (breaktrance, so they actually put some thought into them), more melodies than you can possibly count, and all this without sounding crowded or overstuffed; all of it original. They even did it without overusing the breakdown. Fantastic, it completly lives up to its title.
 
-Aphex Twin - Didgeridoo [1992] [acid trance]
+[Aphex Twin - Didgeridoo](https://www.youtube.com/watch?v=8BGTvxxKoHM) [1992] [acid trance]
 
 This track is simultaneously hard, twisted and beautiful, which is something I would have considered a nearly impossible feat until I heard this, and despite being over 15 years old, it still sounds innovative and fresh today. Built on a foundation of Basic Channel-esque foggy acid lines, Didgeridoo manages to build and break like trance, while meandering and wandering like ambient and relentlessly pounding and squiggling like acid techno without sounding forced or mashed together. A didgeridoo sets the bassline resulting in a simultaneously relaxing, funky and dark atmosphere. It can sound like a trance anthem, a techno monster, or an ambient chilldown depending on how you listen, and it's all of those together and more, and it grows greater with each listen. Didgeridoo is undoubtedly one of the greatest trance tracks of all time. Whether or not it's in the genre of "trance" per se is questionable (though a connecting thread is certainly there), but in the most elastic sense of entrancing dance music, it comes out pretty close to the top.
 
 {arguable - ambient acid techno(?)}
 
-Orbital - Halcyon On & On [1993] [ambient trance]
+[Orbital - Halcyon On & On] (https://www.youtube.com/watch?v=bV-hSgL1R74) [1993] [ambient trance]
 
 {arguable - ambient techno}
 
-Chicane - Offshore [1996] [ibiza trance]
+[Chicane - Offshore](https://www.youtube.com/watch?v=7BYTIATwb0E) [1996] [ibiza trance]
 
 {arguable - ambient house/ibiza house}
 
-Banco De Gaia - Heliopolis [1993] [classic trance/acid trance]
+[Banco De Gaia - Heliopolis] (https://www.youtube.com/watch?v=Z29Yu-lxBac) [1993] [classic trance/acid trance]
 
-Choice - Acid Eiffel [acid trance]
+[Choice - Acid Eiffel] (https://www.youtube.com/watch?v=rYBUDRSeeeE) [acid trance]
 
 {arguable - acid techno}
 
-Ame - Rej [2005] [minimal trance/neo-trance]
+[Ame - Rej](https://www.youtube.com/watch?v=JgBLAA7eCC0) [2005] [minimal trance/neo-trance]
 
 {arguable - "minimal"}
 
-L.S.G. - Netherworld [1997] [progressive trance]
+[L.S.G. - Netherworld](https://www.youtube.com/watch?v=hz5jyhKCLRY) [1997] [progressive trance]
 
-Balil - Parasight [1993] [classic trance/acid trance]
+[Balil - Parasight](https://www.youtube.com/watch?v=4pb_jxz4P8s) [1993] [classic trance/acid trance]
 
 Salt Tank - Eugina [1996] [ibiza trance]
 
