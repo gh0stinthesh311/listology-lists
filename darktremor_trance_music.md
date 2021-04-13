@@ -32,7 +32,7 @@ then the track is disputable (or disputed) in some way.
 
 The genres essentially represented are ibiza trance, epic trance, psytrance/goa trance, anthem trance, classic trance, acid trance, ambient trance, tech-trance, and progressive trance. I am liberal with these categories, and what has also ended up on here is some trancier ambient house, acid techno, progressive house, tech-house, "minimal," and breaks. There is a limit, but it's blurry. For example, you won't find funky house, breakbeat hardcore, or aggrotech on here.
 
-Humate - Love Simulation (Paul van Dyk's Love mix) [1993] [Ibiza trance]
+[Humate - Love Simulation](https://www.youtube.com/watch?v=dQw4w9WgXcQ) (Paul van Dyk's Love mix) [1993] [Ibiza trance]
 
 It's amazing how little this track loses its loveliness with repeat listens. I've had it for 6 years now, and I still love it just as much as I did when it floored me on the first listen. Even the other top 10 tracks (while still amazing) have diminished in some ways with compulsive listening, but this one remains the shining gem at the top of the trance genre. This perfectly captures the beauty of a tropical sunset on a peaceful deserted island, and to this day never fails to evoke such a scene.
 
@@ -44,7 +44,7 @@ Also, the so-called "original mix" available pretty much everywhere is almost un
 
 That said, this version is a fantastic track, and still one of trance's first. It's beautiful, ethereal, and above all, entrancing.
 
-[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=dQw4w9WgXcQ) (Three N' One mix) [1998] [anthem trance/ibiza trance]
+[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=Vsig3_e3CXw) (Three N' One mix) [1998] [anthem trance/ibiza trance]
 
 The track that defines everything that an ibiza anthem is, full of all of the excess and bombast of the island: pure dancable joy. The track's central hook is a long, arpeggiated melody looping such that the beginning and end melt together into an endless sphere. It sounds like sped-up 70's minimalism run through a 90's dark trance synth with a sub-tribal feel (it's the beats that do this). I'll admit, the build-up is a little bit cliche by now, but it wasn't really at the time, and for second-wave trance, it's as creative as it's going to get, and more than compensated by the spot-on anthem. In a not so surprising twist, this was initially written by one of the fathers of modern trance (Cosmic Baby), back in 1993 (they were always better at trance than the bedroom nerds and the corporate pop machine). It has gotten another remix every single year since 93, most of which are picked up by trance jocks and many of which go back on the club charts (the best is undoubtedly 1997's chart-topping Three N' One remix (although some prefer the 1998 Nalin & Kane version, and classic trance addicts will love the original)).
 
@@ -116,19 +116,19 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 [Balil - Parasight](https://www.youtube.com/watch?v=4pb_jxz4P8s) [1993] [classic trance/acid trance]
 
-Salt Tank - Eugina [1996] [ibiza trance]
+[Salt Tank - Eugina](https://www.youtube.com/watch?v=3sCqR-rzjX8) [1996] [ibiza trance]
 
-The PQM - You Are Sleeping (Luke Chable Vocal mix) [2004] [progressive trance/deep trance]
+[The PQM - You Are Sleeping](https://www.youtube.com/watch?v=1HyS80Uf9a8) (Luke Chable Vocal mix) [2004] [progressive trance/deep trance]
 
 {arguable - progressive house}
 
-LSG - Hearts [1994] [classic trance/acid trance]
+[LSG - Hearts](https://www.youtube.com/watch?v=0RzfWRgue7M) [1994] [classic trance/acid trance]
 
-Dance 2 Trance - We Came in Peace [1990] [classic trance]
+[Dance 2 Trance - We Came in Peace](https://www.youtube.com/watch?v=SnR_A_zQ3bU) [1990] [classic trance]
 
 Another contender for first trance song ever created. Whether this track came first, or Age of Love is questionable, but the quality of this little masterpiece is indisputable. Almost like minimal goa, mixed with James Holden-esque progressive (but of course, it predates all of that). It's reminiscent of being on the moon, or on the surface of an alien world: exactly the way trance should sound.
 
-Underworld - Dark Train [1994] [classic trance]
+[Underworld - Dark Train](https://www.youtube.com/watch?v=brZ_WBEzw6E) [1994] [classic trance]
 
 Infected Mushroom - Mush Mushi [goa trance/psytrance]
 
