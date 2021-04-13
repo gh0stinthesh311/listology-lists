@@ -94,7 +94,7 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 {arguable - ambient acid techno(?)}
 
-[Orbital - Halcyon On & On] (https://www.youtube.com/watch?v=bV-hSgL1R74) [1993] [ambient trance]
+[Orbital - Halcyon On & On](https://www.youtube.com/watch?v=bV-hSgL1R74)[1993] [ambient trance]
 
 {arguable - ambient techno}
 
