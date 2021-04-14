@@ -36,7 +36,7 @@ The genres essentially represented are ibiza trance, epic trance, psytrance/goa 
 
 It's amazing how little this track loses its loveliness with repeat listens. I've had it for 6 years now, and I still love it just as much as I did when it floored me on the first listen. Even the other top 10 tracks (while still amazing) have diminished in some ways with compulsive listening, but this one remains the shining gem at the top of the trance genre. This perfectly captures the beauty of a tropical sunset on a peaceful deserted island, and to this day never fails to evoke such a scene.
 
-The Age of Love - Age of Love (Jam & Spoon's Watch out for Stella mix) [1992] [classic trance]
+[The Age of Love - Age of Love](https://www.youtube.com/watch?v=I4Et0DJ2L8k) (Jam & Spoon's Watch out for Stella mix) [1992] [classic trance]
 
 This is often erroneously called the first trance tune of all time, including by me for a very long time. Well, it wasn't. There was no "first trance tune." It seems to have slowly coalesced out of the Belgian new beat, acid house, techno, and euro-house miasma around at the time. You can look for related tracks in each of these early scenes, but none of them are "trance" per se, they clearly fall into their respective styles. And the first artists who actually set out to make "trance" were mimicking a genre that was already defined. So where do you draw the line? You don't. There was no big bang.
 
@@ -94,7 +94,7 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 {arguable - ambient acid techno(?)}
 
-[Orbital - Halcyon On & On](https://www.youtube.com/watch?v=bV-hSgL1R74)[1993] [ambient trance]
+[Orbital - Halcyon On & On](https://www.youtube.com/watch?v=bV-hSgL1R74) [1993] [ambient trance]
 
 {arguable - ambient techno}
 
@@ -102,9 +102,9 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 {arguable - ambient house/ibiza house}
 
-[Banco De Gaia - Heliopolis] (https://www.youtube.com/watch?v=Z29Yu-lxBac) [1993] [classic trance/acid trance]
+[Banco De Gaia - Heliopolis](https://www.youtube.com/watch?v=Z29Yu-lxBac) [1993] [classic trance/acid trance]
 
-[Choice - Acid Eiffel] (https://www.youtube.com/watch?v=rYBUDRSeeeE) [acid trance]
+[Choice - Acid Eiffel](https://www.youtube.com/watch?v=rYBUDRSeeeE) [acid trance]
 
 {arguable - acid techno}
 
