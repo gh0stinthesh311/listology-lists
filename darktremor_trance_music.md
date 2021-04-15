@@ -130,7 +130,7 @@ Another contender for first trance song ever created. Whether this track came fi
 
 [Underworld - Dark Train](https://www.youtube.com/watch?v=brZ_WBEzw6E) [1994] [classic trance]
 
-Infected Mushroom - Mush Mushi [goa trance/psytrance]
+[Infected Mushroom - Mush Mushi](https://www.youtube.com/watch?v=UZB7ApwMn6w) [goa trance/psytrance]
 
 Gabriel Ananda - Ihre PersÃ¶nliche GlÃ¼cksmelodie [2005] [minimal trance/neo-trance]
 
