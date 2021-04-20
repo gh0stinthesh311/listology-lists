@@ -132,23 +132,23 @@ Another contender for first trance song ever created. Whether this track came fi
 
 [Infected Mushroom - Mush Mushi](https://www.youtube.com/watch?v=UZB7ApwMn6w) [goa trance/psytrance]
 
-Gabriel Ananda - Ihre PersÃ¶nliche GlÃ¼cksmelodie [2005] [minimal trance/neo-trance]
+[Gabriel Ananda - Ihre PersÃ¶nliche GlÃ¼cksmelodie](https://www.youtube.com/watch?v=W_uxPQ_oVpk) [2005] [minimal trance/neo-trance]
 
-Paul Van Dyk - For an Angel [1994] [epic trance]
+[Paul Van Dyk - For an Angel](https://www.youtube.com/watch?v=z8noptQ7tRg) [1994] [epic trance]
 
-Metal Master - Spectrum [1992] [classic trance]
+[Metal Master - Spectrum](https://www.youtube.com/watch?v=d146LKl2ixU) [1992] [classic trance]
 
-Push - Strange World [2001] [anthem trance]
+[Push - Strange World](https://www.youtube.com/watch?v=n4Hh2G_Ygh8) [2001] [anthem trance]
 
-Humate & Rabbit In The Moon - East (Opium Den Mix) [1995] [classic trance/acid trance]
+[Humate & Rabbit In The Moon - East (Opium Den Mix)](https://www.youtube.com/watch?v=6bjmHiCWW48) [1995] [classic trance/acid trance]
 
-The MFA - The Difference it Makes [2004] [minimal trance/neo-trance]
+[The MFA - The Difference it Makes [2004]](https://www.youtube.com/watch?v=d3UUMKJeyXU) [minimal trance/neo-trance]
 
 {arguable - progressive house}
 
-Cybernaut - Hydroponix [1997] [goa trance/psytrance]
+[Cybernaut - Hydroponix](https://www.youtube.com/watch?v=SOmE20HwXkY) [1997] [goa trance/psytrance]
 
-Datura - Yerba Del Diablo [1992] [classic trance/acid trance]
+[Datura - Yerba Del Diablo](https://www.youtube.com/watch?v=Ji4wKvlHRMw) [1992] [classic trance/acid trance]
 
 {I find it's a lot like psytrance/goa trance, but this isn't a bad thing.}
 
