@@ -164,7 +164,7 @@ Another contender for first trance song ever created. Whether this track came fi
 
 {arguable - rave}
 
-Phobia - Phobia (DJ Hell mix) [1991/2007] [classic trance/acid trance]
+[Phobia - Phobia (DJ Hell mix)](https://www.youtube.com/watch?v=Bv2jkPokz0E) [1991/2007] [classic trance/acid trance]
 
 What actually makes the DJ Hell 2007 mix different from the 1991 original is pretty minimal (ha. ha. no.), but it seems to do the trick, elevating what was already a trance classic into the neo-trance masterpiece it was always meant to be. Really though, everything that made the track so incredible to begin with is there, and everything added on could have been created back in 1991. But it rounds it out perfectly.
 
