@@ -152,15 +152,15 @@ Another contender for first trance song ever created. Whether this track came fi
 
 {I find it's a lot like psytrance/goa trance, but this isn't a bad thing.}
 
-Three Drives - Greece 2000 [1997] [progressive trance/anthem trance]
+[Three Drives - Greece 2000](https://www.youtube.com/watch?v=-cXMnZ2vrx8) [1997] [progressive trance/anthem trance]
 
-PHD - Summer Storm (Leisure Lounge Edit) [1994] [classic trance/acid trance]
+[PHD - Summer Storm (Leisure Lounge Edit)](https://www.youtube.com/watch?v=arCCNThPwaA) [1994] [classic trance/acid trance]
 
-Jam and Spoon - Stella [1992] [ibiza trance]
+[Jam and Spoon - Stella [1992]](https://www.youtube.com/watch?v=zLy--cFj6W0) [ibiza trance]
 
-Hallucinogen - LSD [1994] [psytrance/goa trance]
+[Hallucinogen - LSD](https://www.youtube.com/watch?v=iIsVzSMRw8E) [1994] [psytrance/goa trance]
 
-Commander Tom - Are Am Eye? [1995] [classic trance/dark trance(?)]
+[Commander Tom - Are Am Eye?](https://www.youtube.com/watch?v=Wh6wrLwRUt8) [1995] [classic trance/dark trance(?)]
 
 {arguable - rave}
 
@@ -492,7 +492,7 @@ Guy Gerber & Shlomi Aber - Sea of Sand [2007] [neo-trance/minimal trance]
 
 {arguable - "minimal"}
 
-VDM - No Hesitation
+[VDM - No Hesitation](https://www.youtube.com/watch?v=xICOR8NdOPA)
 
 James Holden - One For You (Avus One For Heads mix) [2001]
 
