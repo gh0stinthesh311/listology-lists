@@ -172,7 +172,7 @@ It's rather dark trance. The anchoring melody is simply a two note depth charge 
 
 This is also a flagpost of what seems to be a classic trance revival of sorts brought about by an adoring minimal community (some of whom floated out of classic trance-land in the first place, fleeing the epic anthem boom of the late 90s. You know who I mean. Sven Vath. Stephan Bodzin.)
 
-Etnica - Moon Influence [1996] [goa trance/psytrance]
+[Etnica - Moon Influence](https://www.youtube.com/watch?v=sL094nte3_8) [1996] [goa trance/psytrance]
 
 Yahel - Voyage [2000] [psytrance/epic trance]
 
