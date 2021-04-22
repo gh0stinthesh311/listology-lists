@@ -174,13 +174,13 @@ This is also a flagpost of what seems to be a classic trance revival of sorts br
 
 [Etnica - Moon Influence](https://www.youtube.com/watch?v=sL094nte3_8) [1996] [goa trance/psytrance]
 
-Yahel - Voyage [2000] [psytrance/epic trance]
+[Yahel - Voyage](https://www.youtube.com/watch?v=KCbcjoHmSJc) [2000] [psytrance/epic trance]
 
-Binary Finary - 1998 [1998] [anthem trance]
+[Binary Finary - 1998](https://www.youtube.com/watch?v=ncb_0vRcQcY) [1998] [anthem trance]
 
 Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay and club spinning. Although why this odd norm exists at all is beyond me. If you still like the track, just keep playing it. Don't buy it again with a different date stamped on the cover, just so you can label yourself "upfront."
 
-Union Jack - Red Herring [1995] [acid trance]
+[Union Jack - Red Herring](https://www.youtube.com/watch?v=R22a5nLK6mM) [1995] [acid trance]
 
 Beanfield - Tides (Carl Craig mix) [2004] [minimal trance/neo-trance]
 
