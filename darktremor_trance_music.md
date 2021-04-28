@@ -182,11 +182,11 @@ Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay
 
 [Union Jack - Red Herring](https://www.youtube.com/watch?v=R22a5nLK6mM) [1995] [acid trance]
 
-Beanfield - Tides (Carl Craig mix) [2004] [minimal trance/neo-trance]
+[Beanfield - Tides (Carl Craig mix)](https://www.youtube.com/watch?v=fB9S1BqEE0I) [2004] [minimal trance/neo-trance]
 
-Cybordelics - Adventures of Dama [1993] [classic trance]
+[Cybordelics - Adventures of Dama [1993]](https://www.youtube.com/watch?v=FD7LqRinNuk) [classic trance]
 
-The Thrillseekers - Synaesthesia [1999] [epic trance]
+[The Thrillseekers - Synaesthesia [1999]](https://www.youtube.com/watch?v=0XbrboMgYkU) [epic trance]
 
 Leftfield - Phat Planet [1999] [deep trance]
 
