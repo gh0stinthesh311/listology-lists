@@ -188,15 +188,15 @@ Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay
 
 [The Thrillseekers - Synaesthesia [1999]](https://www.youtube.com/watch?v=0XbrboMgYkU) [epic trance]
 
-Leftfield - Phat Planet [1999] [deep trance]
+[Leftfield - Phat Planet [1999]](https://www.youtube.com/watch?v=5GC_X_tI5kA) [deep trance] 
 
 {arguable - progressive house}
 
-Atlantic Ocean - Waterfalls [1993] [anthem trance]
+[Atlantic Ocean - Waterfalls [1993]](https://www.youtube.com/watch?v=Q-_UlgGJ3DQ) [anthem trance]
 
 {arguable - anthem house}
 
-DJ Tiesto - Suburban Train [2001] [epic trance]
+[DJ Tiesto - Suburban Train](https://www.youtube.com/watch?v=eRIGWAyDzD8) [2001] [epic trance]
 
 James Holden - Nothing (93 Returning mix) [2003] [progressive trance]
 
