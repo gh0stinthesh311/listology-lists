@@ -188,21 +188,21 @@ Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay
 
 [The Thrillseekers - Synaesthesia [1999]](https://www.youtube.com/watch?v=0XbrboMgYkU) [epic trance]
 
-[Leftfield - Phat Planet [1999]](https://www.youtube.com/watch?v=5GC_X_tI5kA) [deep trance] 
+[Leftfield - Phat Planet ](https://www.youtube.com/watch?v=5GC_X_tI5kA) [1999] [deep trance] 
 
 {arguable - progressive house}
 
-[Atlantic Ocean - Waterfalls [1993]](https://www.youtube.com/watch?v=Q-_UlgGJ3DQ) [anthem trance]
+[Atlantic Ocean - Waterfalls ](https://www.youtube.com/watch?v=Q-_UlgGJ3DQ) [1993] [anthem trance]
 
 {arguable - anthem house}
 
 [DJ Tiesto - Suburban Train](https://www.youtube.com/watch?v=eRIGWAyDzD8) [2001] [epic trance]
 
-James Holden - Nothing (93 Returning mix) [2003] [progressive trance]
+[James Holden - Nothing (93 Returning mix)](https://www.youtube.com/watch?v=oD8cRAjFB1w) [2003] [progressive trance]
 
-Roland Appel - Dark Soldier [2007] [minimal trance/neo-trance]
+[Roland Appel - Dark Soldier](https://www.youtube.com/watch?v=q325Zm33fws) [2007] [minimal trance/neo-trance]
 
-Efdemin - Lohn & Brot [2007] [minimal trance/neo-trance]
+[Efdemin - Lohn & Brot](https://soundcloud.com/gsg9mark/efdemin-lohn-brot-original-mix) [2007] [minimal trance/neo-trance]
 
 "Minimal" has gotten so trancy this year that almost all of the best new tracks warrant (high) places on this list.
 
@@ -210,9 +210,9 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arguable - minimal. But argue with me that it's really minimal and not trance at all and I'll actually beat you down. I will find out where you live, and I will beat you down. It's got breakdowns, dammit, BREAKDOWNS. Yeah, minimal. Right.}
 
-Orbital - Belfast [1992] [ambient trance]
+[Orbital - Belfast](https://www.youtube.com/watch?v=5HNtsdtnBfk) [1992] [ambient trance]
 
-Art of Trance - Madagascar (Cygnus X mix) [1998] [epic trance/anthem trance]
+[Art of Trance - Madagascar (Cygnus X mix)](https://www.youtube.com/watch?v=SoupqmAOcmw) [1998] [epic trance/anthem trance]
 
 Gus Gus - Purple (Sasha vs. The Light mix) [1998] [progressive trance]
 
