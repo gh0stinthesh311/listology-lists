@@ -214,7 +214,7 @@ This is the only trance track on the entire list that I fell in love with during
 
 [Art of Trance - Madagascar (Cygnus X mix)](https://www.youtube.com/watch?v=SoupqmAOcmw) [1998] [epic trance/anthem trance]
 
-Gus Gus - Purple (Sasha vs. The Light mix) [1998] [progressive trance]
+[Gus Gus - Purple (Sasha vs. The Light mix)](https://www.youtube.com/watch?v=MCDmeeTpgz0) [1998] [progressive trance]
 
 James Holden - Horizons [1999] [progressive trance]
 
