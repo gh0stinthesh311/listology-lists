@@ -216,13 +216,13 @@ This is the only trance track on the entire list that I fell in love with during
 
 [Gus Gus - Purple (Sasha vs. The Light mix)](https://www.youtube.com/watch?v=MCDmeeTpgz0) [1998] [progressive trance]
 
-James Holden - Horizons [1999] [progressive trance]
+[James Holden - Horizons [1999]](https://www.youtube.com/watch?v=kSHHpmeMLcA) [progressive trance]
 
-Cygnus X - Superstring [1994] [classic trance]
+[Cygnus X - Superstring [1994]](https://www.youtube.com/watch?v=G9VHsdTX9zI) [classic trance]
 
-Patrick Chardronnet - Eve By Day (Ripperton mix) [2006] [minimal trance/neo-trance]
+[Patrick Chardronnet - Eve By Day](https://www.youtube.com/watch?v=sbR_quuteeY) (Ripperton mix) [2006] [minimal trance/neo-trance]
 
-The Field - Over the Ice [2006] [minimal trance/neo-trance]
+The Field - Over the Ice(https://www.youtube.com/watch?v=FQxEVhyvA0I) [2006] [minimal trance/neo-trance]
 
 {arugable - minimal techno(?)}
 
