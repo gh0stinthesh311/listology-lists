@@ -226,11 +226,11 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arugable - minimal techno(?)}
 
-Banco De Gaia - Last Train to Lhasa [1995] [classic trance/ambient trance]
+[Banco De Gaia - Last Train to Lhasa](https://www.youtube.com/watch?v=5E20iADAe6g) [1995] [classic trance/ambient trance]
 
 {arguable - ambient house/progressive house}
 
-Astral Projection - Aurora Borealis [2000] [psytrance/goa trance]
+Astral Projection - Aurora Borealis(https://www.youtube.com/watch?v=_UGyJ3EjLZU) [2000] [psytrance/goa trance]
 
 PPK - Resurrection [2001] [progressive trance/anthem trance]
 
