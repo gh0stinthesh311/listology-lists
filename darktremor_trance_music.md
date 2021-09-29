@@ -234,7 +234,7 @@ This is the only trance track on the entire list that I fell in love with during
 
 [PPK - Resurrection [2001]](https://www.youtube.com/watch?v=Rce8QnuFRVk) [progressive trance/anthem trance]
 
-Shakta - Lepton Head III [1996] [goa trance/psytrance]
+[Shakta - Lepton Head III [1996]](https://www.youtube.com/watch?v=elSdqfSpMAI) [goa trance/psytrance]
 
 Way Out West - Mindcircus (Gabriel and Dresden mix) [2001] [progressive trance]
 
