@@ -232,7 +232,7 @@ This is the only trance track on the entire list that I fell in love with during
 
 [Astral Projection - Aurora Borealis](https://www.youtube.com/watch?v=_UGyJ3EjLZU) [2000] [psytrance/goa trance]
 
-[PPK - Resurrection [2001]] (https://www.youtube.com/watch?v=Rce8QnuFRVk) [progressive trance/anthem trance]
+[PPK - Resurrection [2001]](https://www.youtube.com/watch?v=Rce8QnuFRVk) [progressive trance/anthem trance]
 
 Shakta - Lepton Head III [1996] [goa trance/psytrance]
 
