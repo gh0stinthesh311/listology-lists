@@ -230,7 +230,7 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arguable - ambient house/progressive house}
 
-Astral Projection - Aurora Borealis(https://www.youtube.com/watch?v=_UGyJ3EjLZU) [2000] [psytrance/goa trance]
+[Astral Projection - Aurora Borealis](https://www.youtube.com/watch?v=_UGyJ3EjLZU) [2000] [psytrance/goa trance]
 
 PPK - Resurrection [2001] [progressive trance/anthem trance]
 
