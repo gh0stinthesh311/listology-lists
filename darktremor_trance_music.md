@@ -236,11 +236,11 @@ This is the only trance track on the entire list that I fell in love with during
 
 [Shakta - Lepton Head III [1996]](https://www.youtube.com/watch?v=elSdqfSpMAI) [goa trance/psytrance]
 
-Way Out West - Mindcircus (Gabriel and Dresden mix) [2001] [progressive trance]
+[Way Out West - Mindcircus (Gabriel and Dresden mix)](https://www.youtube.com/watch?v=CO7n9Xl3UDQ) [2001] [progressive trance]
 
 {arguable - progressive house}
 
-Astral Projection - Mahadeva [1996] [psytrance]
+[Astral Projection - Mahadeva](https://www.youtube.com/watch?v=onquKz5SYRs) [1996] [psytrance]
 
 Like an ancient tribal ceremony, plus aliens.
 
