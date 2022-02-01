@@ -246,11 +246,11 @@ Like an ancient tribal ceremony, plus aliens.
 
 {arugable - psy. But really, think about it. Psy...trance. PsyTRANCE.}
 
-Petter - These Days [2004] [deep trance/neo-trance]
+[Petter - These Days](https://www.youtube.com/watch?v=mN3JsaHPVtk) [2004] [deep trance/neo-trance]
 
 {arguable - progressive breaks}
 
-Zyon - No fate (No Fate edit) [1992] [classic trance]
+[Zyon - No fate (No Fate edit)](https://www.youtube.com/watch?v=jobpcu1buUw) [1992] [classic trance]
 
 Paul Van Dyk - Words [1997] [progressive trance]
 
