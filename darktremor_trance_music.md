@@ -252,9 +252,9 @@ Like an ancient tribal ceremony, plus aliens.
 
 [Zyon - No fate (No Fate edit)](https://www.youtube.com/watch?v=jobpcu1buUw) [1992] [classic trance]
 
-Paul Van Dyk - Words [1997] [progressive trance]
+[Paul Van Dyk - Words](https://www.youtube.com/watch?v=9deJP2Xqy4I) [1997] [progressive trance]
 
-Stefan Goldmann - Sleepy Hollow [2006] [minimal trance/neo-trance]
+[Stefan Goldmann - Sleepy Hollow] (https://www.youtube.com/watch?v=ybeQ3C6ld1E) [2006] [minimal trance/neo-trance]
 
 {arguable: minimal techno/deep house. Supposedly.)
 
