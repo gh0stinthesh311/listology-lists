@@ -262,15 +262,15 @@ Like an ancient tribal ceremony, plus aliens.
 
 {arguable - progressive house/ambient house}
 
-Nathan Fake - The Sky was Pink (James Holden mix) [2005] [progressive trance/minimal trance/neo-trance]
+[Nathan Fake - The Sky was Pink (James Holden mix)](https://youtu.be/6jmZTtFxcUg) [2005] [progressive trance/minimal trance/neo-trance]
 
 {arguable - progressive house/"Border Community techno" [which is generally called neo-trance, any dispute here is silly]}
 
-4Voice - Eternal Spirit [1992] [classic trance]
+[4Voice - Eternal Spirit](https://youtu.be/VJA6ucUcj6k) [1992] [classic trance]
 
-Lost Tribe - Gamemaster [1997] [progressive trance/anthem trance]
+[Lost Tribe - Gamemaster](https://youtu.be/bboe1FRs2nI) [1997] [progressive trance/anthem trance]
 
-Rabbit In The Moon - Out Of Body Experience (Phase One - First Contact) [1994] [classic trance]
+[Rabbit In The Moon - Out Of Body Experience (Phase One - First Contact)](https://youtu.be/sSO-yzNNadw) [1994] [classic trance]
 
 Heartthrob - Baby Kate [2006] [minimal trance/neo-trance]
 
