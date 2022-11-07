@@ -56,7 +56,7 @@ Released in 1991, this song wasn't even intended to be trance - no one even used
 
 [Underworld - Born Slippy (NUXX)](https://www.youtube.com/watch?v=mQwg2JJFm6A) [1995] [classic trance/hard trance]
 
-**worth mentioning [Original 1995 Version](https://www.youtube.com/watch?v=3Fr1x-N3-k8) ~ passmesomesugar
+**worth mentioning [Original 1995 Version](https://youtu.be/Ey7a8Km6Aw8)
 
 A melodic trance tune with stream-of-consciousness lyrics that become stranger with each listen, mainly beacuse they never really had any actual internal logic to begin with. The melody is unforgettably catchy, and contains a nice twist in the middle, in which it goes from being a wistful and pretty little ambient trancer, to a hard and abrasive swedish techno stormer, and pulls both off better than just about anything in either genre. Surprisingly, especially with this being, you know, actually good, this was a huge hit in Europe (it went to number 2 on the world chart in 1996-97), and gets at least two new remixes every year, at least one of which always goes back on the club charts (hopefully 2006 will be an exception? Honestly, they're never going to top the original). So, not only is it one of the best, it's also the most popular to still retain credibility.
 
