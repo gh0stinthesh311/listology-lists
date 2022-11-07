@@ -254,11 +254,11 @@ Like an ancient tribal ceremony, plus aliens.
 
 [Paul Van Dyk - Words](https://www.youtube.com/watch?v=9deJP2Xqy4I) [1997] [progressive trance]
 
-[Stefan Goldmann - Sleepy Hollow] (https://www.youtube.com/watch?v=ybeQ3C6ld1E) [2006] [minimal trance/neo-trance]
+[Stefan Goldmann - Sleepy Hollow](https://www.youtube.com/watch?v=ybeQ3C6ld1E) [2006] [minimal trance/neo-trance]
 
 {arguable: minimal techno/deep house. Supposedly.)
 
-William Orbit - Water from a Wine Leaf (Xylem Flow mix) [1992] [classic trance/ambient trance]
+[William Orbit - Water from a Wine Leaf (Xfylem Flow mix)](https://www.youtube.com/watch?v=hnifmG3f2aY) [1992] [classic trance/ambient trance]
 
 {arguable - progressive house/ambient house}
 
