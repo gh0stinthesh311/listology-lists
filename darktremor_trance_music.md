@@ -272,11 +272,11 @@ Like an ancient tribal ceremony, plus aliens.
 
 [Rabbit In The Moon - Out Of Body Experience (Phase One - First Contact)](https://youtu.be/sSO-yzNNadw) [1994] [classic trance]
 
-Heartthrob - Baby Kate [2006] [minimal trance/neo-trance]
+[Heartthrob - Baby Kate](https://www.youtube.com/watch?v=I62tmyorlek) [2006] [minimal trance/neo-trance]
 
 {arguable: minimal techno, although I think it's really too melodic for that}
 
-Cydonia - Haunted World [1999] [goa trance/psytrance]
+[Cydonia - Haunted World](https://youtu.be/o52r_AoNWws) [1999] [goa trance/psytrance]
 
 Paragliders - Oasis [1995] [classic trance]
 
