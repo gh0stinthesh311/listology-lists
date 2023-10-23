@@ -36,7 +36,7 @@ The genres essentially represented are ibiza trance, epic trance, psytrance/goa 
 
 It's amazing how little this track loses its loveliness with repeat listens. I've had it for 6 years now, and I still love it just as much as I did when it floored me on the first listen. Even the other top 10 tracks (while still amazing) have diminished in some ways with compulsive listening, but this one remains the shining gem at the top of the trance genre. This perfectly captures the beauty of a tropical sunset on a peaceful deserted island, and to this day never fails to evoke such a scene.
 
-[The Age of Love - Age of Love](https://www.youtube.com/watch?v=I4Et0DJ2L8k) (Jam & Spoon's Watch out for Stella mix) [1992] [classic trance]
+[The Age of Love - Age of Love](https://www.youtube.com/watch?v=I4Et0DJ2L8k) (Jam & Spoon's Watch out for Stella mix)  
 
 This is often erroneously called the first trance tune of all time, including by me for a very long time. Well, it wasn't. There was no "first trance tune." It seems to have slowly coalesced out of the Belgian new beat, acid house, techno, and euro-house miasma around at the time. You can look for related tracks in each of these early scenes, but none of them are "trance" per se, they clearly fall into their respective styles. And the first artists who actually set out to make "trance" were mimicking a genre that was already defined. So where do you draw the line? You don't. There was no big bang.
 
@@ -44,7 +44,7 @@ Also, the so-called "original mix" available pretty much everywhere is almost un
 
 That said, this version is a fantastic track, and still one of trance's first. It's beautiful, ethereal, and above all, entrancing.
 
-[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=Vsig3_e3CXw) (Three N' One mix) [1998] [anthem trance/ibiza trance]
+[Energy 52 - Cafe Del Mar](https://www.youtube.com/watch?v=Vsig3_e3CXw) (Three N' One mix)  [anthem trance/ibiza trance]
 
 The track that defines everything that an ibiza anthem is, full of all of the excess and bombast of the island: pure dancable joy. The track's central hook is a long, arpeggiated melody looping such that the beginning and end melt together into an endless sphere. It sounds like sped-up 70's minimalism run through a 90's dark trance synth with a sub-tribal feel (it's the beats that do this). I'll admit, the build-up is a little bit cliche by now, but it wasn't really at the time, and for second-wave trance, it's as creative as it's going to get, and more than compensated by the spot-on anthem. In a not so surprising twist, this was initially written by one of the fathers of modern trance (Cosmic Baby), back in 1993 (they were always better at trance than the bedroom nerds and the corporate pop machine). It has gotten another remix every single year since 93, most of which are picked up by trance jocks and many of which go back on the club charts (the best is undoubtedly 1997's chart-topping Three N' One remix (although some prefer the 1998 Nalin & Kane version, and classic trance addicts will love the original)).
 
@@ -62,7 +62,7 @@ A melodic trance tune with stream-of-consciousness lyrics that become stranger w
 
 {arguable - melodic techo(?)}
 
-[Sasha - Xpander](https://www.youtube.com/watch?v=z3Gu7CXfRdA) [1999] [progressive trance]
+[Sasha - Xpander](https://www.youtube.com/watch?v=z3Gu7CXfRdA)  
 
 Perfect progressive trance. A melody that, like the last 2 tracks, is atmospheric, loops on itself, and endlessly contagious, without seeming repetitive. This song is absorbing - the feeling throughout is impossible to describe, since like I said before...dancing about architecture. Just download the track. It's incredible. (Was another mega-European hit. I don't know the details specifically, but it doesn't matter).
 
@@ -72,7 +72,7 @@ Gorgeous, elegant, and never tiring. It's quite possible that I've listened to t
 
 {arguable - ibiza house}
 
-[Paragliders - Paraglide](https://www.youtube.com/watch?v=c48baEsPM4Y) [1993] [classic trance]
+[Paragliders - Paraglide](https://www.youtube.com/watch?v=c48baEsPM4Y) [1993] 
 
 [DnTel - (This is) The Dream of Evan and Chan (Superpitcher Kompakt remix)](https://www.youtube.com/watch?v=9PVorE74HfA) [2002] [minimal trance]
 
@@ -80,15 +80,15 @@ This is probably the only trance track ever created with vocals worth listening 
 
 {arguble: tech-house/progressive house/microhouse}
 
-[Hardfloor - Acperience 1](https://www.youtube.com/watch?v=Un4CeV_l3pI) [1992] [acid trance/classic trance]
+[Hardfloor - Acperience 1](https://www.youtube.com/watch?v=Un4CeV_l3pI)  [acid trance/classic trance]
 
 {arguable - acid}
 
-[Hybrid - Symphony](https://www.youtube.com/watch?v=FA03Z7p5O-8) [1997] [orchestral trance]
+[Hybrid - Symphony](https://www.youtube.com/watch?v=FA03Z7p5O-8)  [orchestral trance]
 
 Wow. Forget Adagio for Strings, forget Protect Your Mind, forget ****ing Airwave, symphonic trance was created and destroyed with this track. Everything trance is supposed to make you feel, and almost everything classical is supposed to do can be found here in this amazing song. Easy to dance to, creative beats (breaktrance, so they actually put some thought into them), more melodies than you can possibly count, and all this without sounding crowded or overstuffed; all of it original. They even did it without overusing the breakdown. Fantastic, it completly lives up to its title.
 
-[Aphex Twin - Didgeridoo](https://www.youtube.com/watch?v=8BGTvxxKoHM) [1992] [acid trance]
+[Aphex Twin - Didgeridoo](https://www.youtube.com/watch?v=8BGTvxxKoHM)  [acid trance]
 
 This track is simultaneously hard, twisted and beautiful, which is something I would have considered a nearly impossible feat until I heard this, and despite being over 15 years old, it still sounds innovative and fresh today. Built on a foundation of Basic Channel-esque foggy acid lines, Didgeridoo manages to build and break like trance, while meandering and wandering like ambient and relentlessly pounding and squiggling like acid techno without sounding forced or mashed together. A didgeridoo sets the bassline resulting in a simultaneously relaxing, funky and dark atmosphere. It can sound like a trance anthem, a techno monster, or an ambient chilldown depending on how you listen, and it's all of those together and more, and it grows greater with each listen. Didgeridoo is undoubtedly one of the greatest trance tracks of all time. Whether or not it's in the genre of "trance" per se is questionable (though a connecting thread is certainly there), but in the most elastic sense of entrancing dance music, it comes out pretty close to the top.
 
@@ -102,69 +102,69 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 {arguable - ambient house/ibiza house}
 
-[Banco De Gaia - Heliopolis](https://www.youtube.com/watch?v=Z29Yu-lxBac) [1993] [classic trance/acid trance]
+[Banco De Gaia - Heliopolis](https://www.youtube.com/watch?v=Z29Yu-lxBac) [1993] 
 
 [Choice - Acid Eiffel](https://www.youtube.com/watch?v=rYBUDRSeeeE) [acid trance]
 
 {arguable - acid techno}
 
-[Ame - Rej](https://www.youtube.com/watch?v=JgBLAA7eCC0) [2005] [minimal trance/neo-trance]
+[Ame - Rej](https://www.youtube.com/watch?v=JgBLAA7eCC0) [2005] 
 
 {arguable - "minimal"}
 
-[L.S.G. - Netherworld](https://www.youtube.com/watch?v=hz5jyhKCLRY) [1997] [progressive trance]
+[L.S.G. - Netherworld](https://www.youtube.com/watch?v=hz5jyhKCLRY)  
 
-[Balil - Parasight](https://www.youtube.com/watch?v=4pb_jxz4P8s) [1993] [classic trance/acid trance]
+[Balil - Parasight](https://www.youtube.com/watch?v=4pb_jxz4P8s) [1993] 
 
 [Salt Tank - Eugina](https://www.youtube.com/watch?v=3sCqR-rzjX8) [1996] [ibiza trance]
 
-[The PQM - You Are Sleeping](https://www.youtube.com/watch?v=1HyS80Uf9a8) (Luke Chable Vocal mix) [2004] [progressive trance/deep trance]
+[The PQM - You Are Sleeping](https://www.youtube.com/watch?v=1HyS80Uf9a8) (Luke Chable Vocal mix)  [progressive trance/deep trance]
 
 {arguable - progressive house}
 
-[LSG - Hearts](https://www.youtube.com/watch?v=0RzfWRgue7M) [1994] [classic trance/acid trance]
+[LSG - Hearts](https://www.youtube.com/watch?v=0RzfWRgue7M)  
 
-[Dance 2 Trance - We Came in Peace](https://www.youtube.com/watch?v=SnR_A_zQ3bU) [1990] [classic trance]
+[Dance 2 Trance - We Came in Peace](https://www.youtube.com/watch?v=SnR_A_zQ3bU) [1990] 
 
 Another contender for first trance song ever created. Whether this track came first, or Age of Love is questionable, but the quality of this little masterpiece is indisputable. Almost like minimal goa, mixed with James Holden-esque progressive (but of course, it predates all of that). It's reminiscent of being on the moon, or on the surface of an alien world: exactly the way trance should sound.
 
-[Underworld - Dark Train](https://www.youtube.com/watch?v=brZ_WBEzw6E) [1994] [classic trance]
+[Underworld - Dark Train](https://www.youtube.com/watch?v=brZ_WBEzw6E)  
 
 [Infected Mushroom - Mush Mushi](https://www.youtube.com/watch?v=UZB7ApwMn6w) [goa trance/psytrance]
 
-[Gabriel Ananda - Ihre PersÃ¶nliche GlÃ¼cksmelodie](https://www.youtube.com/watch?v=W_uxPQ_oVpk) [2005] [minimal trance/neo-trance]
+[Gabriel Ananda - Ihre PersÃ¶nliche GlÃ¼cksmelodie](https://www.youtube.com/watch?v=W_uxPQ_oVpk) [2005] 
 
-[Paul Van Dyk - For an Angel](https://www.youtube.com/watch?v=z8noptQ7tRg) [1994] [epic trance]
+[Paul Van Dyk - For an Angel](https://www.youtube.com/watch?v=z8noptQ7tRg)  [epic trance]
 
-[Metal Master - Spectrum](https://www.youtube.com/watch?v=d146LKl2ixU) [1992] [classic trance]
+[Metal Master - Spectrum](https://www.youtube.com/watch?v=d146LKl2ixU)  
 
 [Push - Strange World](https://www.youtube.com/watch?v=n4Hh2G_Ygh8) [2001] [anthem trance]
 
-[Humate & Rabbit In The Moon - East (Opium Den Mix)](https://www.youtube.com/watch?v=6bjmHiCWW48) [1995] [classic trance/acid trance]
+[Humate & Rabbit In The Moon - East (Opium Den Mix)](https://www.youtube.com/watch?v=6bjmHiCWW48) [1995] 
 
-[The MFA - The Difference it Makes [2004]](https://www.youtube.com/watch?v=d3UUMKJeyXU) [minimal trance/neo-trance]
+[The MFA - The Difference it Makes ](https://www.youtube.com/watch?v=d3UUMKJeyXU) 
 
 {arguable - progressive house}
 
-[Cybernaut - Hydroponix](https://www.youtube.com/watch?v=SOmE20HwXkY) [1997] [goa trance/psytrance]
+[Cybernaut - Hydroponix](https://www.youtube.com/watch?v=SOmE20HwXkY)  [goa trance/psytrance]
 
-[Datura - Yerba Del Diablo](https://www.youtube.com/watch?v=Ji4wKvlHRMw) [1992] [classic trance/acid trance]
+[Datura - Yerba Del Diablo](https://www.youtube.com/watch?v=Ji4wKvlHRMw)  
 
 {I find it's a lot like psytrance/goa trance, but this isn't a bad thing.}
 
-[Three Drives - Greece 2000](https://www.youtube.com/watch?v=-cXMnZ2vrx8) [1997] [progressive trance/anthem trance]
+[Three Drives - Greece 2000](https://www.youtube.com/watch?v=-cXMnZ2vrx8)  [progressive trance/anthem trance]
 
-[PHD - Summer Storm (Leisure Lounge Edit)](https://www.youtube.com/watch?v=arCCNThPwaA) [1994] [classic trance/acid trance]
+[PHD - Summer Storm (Leisure Lounge Edit)](https://www.youtube.com/watch?v=arCCNThPwaA)  
 
-[Jam and Spoon - Stella [1992]](https://www.youtube.com/watch?v=zLy--cFj6W0) [ibiza trance]
+[Jam and Spoon - Stella ](https://www.youtube.com/watch?v=zLy--cFj6W0) [ibiza trance]
 
-[Hallucinogen - LSD](https://www.youtube.com/watch?v=iIsVzSMRw8E) [1994] [psytrance/goa trance]
+[Hallucinogen - LSD](https://www.youtube.com/watch?v=iIsVzSMRw8E)  
 
 [Commander Tom - Are Am Eye?](https://www.youtube.com/watch?v=Wh6wrLwRUt8) [1995] [classic trance/dark trance(?)]
 
 {arguable - rave}
 
-[Phobia - Phobia (DJ Hell mix)](https://www.youtube.com/watch?v=Bv2jkPokz0E) [1991/2007] [classic trance/acid trance]
+[Phobia - Phobia (DJ Hell mix)](https://www.youtube.com/watch?v=Bv2jkPokz0E) [1991/2007] 
 
 What actually makes the DJ Hell 2007 mix different from the 1991 original is pretty minimal (ha. ha. no.), but it seems to do the trick, elevating what was already a trance classic into the neo-trance masterpiece it was always meant to be. Really though, everything that made the track so incredible to begin with is there, and everything added on could have been created back in 1991. But it rounds it out perfectly.
 
@@ -176,19 +176,19 @@ This is also a flagpost of what seems to be a classic trance revival of sorts br
 
 [Yahel - Voyage](https://www.youtube.com/watch?v=KCbcjoHmSJc) [2000] [psytrance/epic trance]
 
-[Binary Finary - 1998](https://www.youtube.com/watch?v=ncb_0vRcQcY) [1998] [anthem trance]
+[Binary Finary - 1998](https://www.youtube.com/watch?v=ncb_0vRcQcY)  [anthem trance]
 
 Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay and club spinning. Although why this odd norm exists at all is beyond me. If you still like the track, just keep playing it. Don't buy it again with a different date stamped on the cover, just so you can label yourself "upfront."
 
 [Union Jack - Red Herring](https://www.youtube.com/watch?v=R22a5nLK6mM) [1995] [acid trance]
 
-[Beanfield - Tides (Carl Craig mix)](https://www.youtube.com/watch?v=fB9S1BqEE0I) [2004] [minimal trance/neo-trance]
+[Beanfield - Tides (Carl Craig mix)](https://www.youtube.com/watch?v=fB9S1BqEE0I)  
 
-[Cybordelics - Adventures of Dama [1993]](https://www.youtube.com/watch?v=FD7LqRinNuk) [classic trance]
+[Cybordelics - Adventures of Dama [1993]](https://www.youtube.com/watch?v=FD7LqRinNuk) 
 
-[The Thrillseekers - Synaesthesia [1999]](https://www.youtube.com/watch?v=0XbrboMgYkU) [epic trance]
+[The Thrillseekers - Synaesthesia ](https://www.youtube.com/watch?v=0XbrboMgYkU) [epic trance]
 
-[Leftfield - Phat Planet ](https://www.youtube.com/watch?v=5GC_X_tI5kA) [1999] [deep trance] 
+[Leftfield - Phat Planet ](https://www.youtube.com/watch?v=5GC_X_tI5kA)  [deep trance] 
 
 {arguable - progressive house}
 
@@ -198,11 +198,11 @@ Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay
 
 [DJ Tiesto - Suburban Train](https://www.youtube.com/watch?v=eRIGWAyDzD8) [2001] [epic trance]
 
-[James Holden - Nothing (93 Returning mix)](https://www.youtube.com/watch?v=oD8cRAjFB1w) [2003] [progressive trance]
+[James Holden - Nothing (93 Returning mix)](https://www.youtube.com/watch?v=oD8cRAjFB1w) [2003] 
 
-[Roland Appel - Dark Soldier](https://www.youtube.com/watch?v=q325Zm33fws) [2007] [minimal trance/neo-trance]
+[Roland Appel - Dark Soldier](https://www.youtube.com/watch?v=q325Zm33fws) [2007] 
 
-[Efdemin - Lohn & Brot](https://soundcloud.com/gsg9mark/efdemin-lohn-brot-original-mix) [2007] [minimal trance/neo-trance]
+[Efdemin - Lohn & Brot](https://soundcloud.com/gsg9mark/efdemin-lohn-brot-original-mix) [2007] 
 
 "Minimal" has gotten so trancy this year that almost all of the best new tracks warrant (high) places on this list.
 
@@ -210,19 +210,19 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arguable - minimal. But argue with me that it's really minimal and not trance at all and I'll actually beat you down. I will find out where you live, and I will beat you down. It's got breakdowns, dammit, BREAKDOWNS. Yeah, minimal. Right.}
 
-[Orbital - Belfast](https://www.youtube.com/watch?v=5HNtsdtnBfk) [1992] [ambient trance]
+[Orbital - Belfast](https://www.youtube.com/watch?v=5HNtsdtnBfk)  [ambient trance]
 
-[Art of Trance - Madagascar (Cygnus X mix)](https://www.youtube.com/watch?v=SoupqmAOcmw) [1998] [epic trance/anthem trance]
+[Art of Trance - Madagascar (Cygnus X mix)](https://www.youtube.com/watch?v=SoupqmAOcmw)  [epic trance/anthem trance]
 
-[Gus Gus - Purple (Sasha vs. The Light mix)](https://www.youtube.com/watch?v=MCDmeeTpgz0) [1998] [progressive trance]
+[Gus Gus - Purple (Sasha vs. The Light mix)](https://www.youtube.com/watch?v=MCDmeeTpgz0)  
 
-[James Holden - Horizons [1999]](https://www.youtube.com/watch?v=kSHHpmeMLcA) [progressive trance]
+[James Holden - Horizons ](https://www.youtube.com/watch?v=kSHHpmeMLcA) 
 
-[Cygnus X - Superstring [1994]](https://www.youtube.com/watch?v=G9VHsdTX9zI) [classic trance]
+[Cygnus X - Superstring ](https://www.youtube.com/watch?v=G9VHsdTX9zI) 
 
-[Patrick Chardronnet - Eve By Day](https://www.youtube.com/watch?v=sbR_quuteeY) (Ripperton mix) [2006] [minimal trance/neo-trance]
+[Patrick Chardronnet - Eve By Day](https://www.youtube.com/watch?v=sbR_quuteeY) (Ripperton mix)  
 
-[The Field - Over the Ice](https://www.youtube.com/watch?v=FQxEVhyvA0I) [2006] [minimal trance/neo-trance]
+[The Field - Over the Ice](https://www.youtube.com/watch?v=FQxEVhyvA0I)  
 
 {arugable - minimal techno(?)}
 
@@ -230,13 +230,13 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arguable - ambient house/progressive house}
 
-[Astral Projection - Aurora Borealis](https://www.youtube.com/watch?v=_UGyJ3EjLZU) [2000] [psytrance/goa trance]
+[Astral Projection - Aurora Borealis](https://www.youtube.com/watch?v=_UGyJ3EjLZU) [2000] 
 
 [PPK - Resurrection [2001]](https://www.youtube.com/watch?v=Rce8QnuFRVk) [progressive trance/anthem trance]
 
 [Shakta - Lepton Head III [1996]](https://www.youtube.com/watch?v=elSdqfSpMAI) [goa trance/psytrance]
 
-[Way Out West - Mindcircus (Gabriel and Dresden mix)](https://www.youtube.com/watch?v=CO7n9Xl3UDQ) [2001] [progressive trance]
+[Way Out West - Mindcircus (Gabriel and Dresden mix)](https://www.youtube.com/watch?v=CO7n9Xl3UDQ) [2001] 
 
 {arguable - progressive house}
 
@@ -246,19 +246,19 @@ Like an ancient tribal ceremony, plus aliens.
 
 {arugable - psy. But really, think about it. Psy...trance. PsyTRANCE.}
 
-[Petter - These Days](https://www.youtube.com/watch?v=mN3JsaHPVtk) [2004] [deep trance/neo-trance]
+[Petter - These Days](https://www.youtube.com/watch?v=mN3JsaHPVtk)  [deep trance/neo-trance]
 
 {arguable - progressive breaks}
 
-[Zyon - No fate (No Fate edit)](https://www.youtube.com/watch?v=jobpcu1buUw) [1992] [classic trance]
+[Zyon - No fate (No Fate edit)](https://www.youtube.com/watch?v=jobpcu1buUw)  
 
-[Paul Van Dyk - Words](https://www.youtube.com/watch?v=9deJP2Xqy4I) [1997] [progressive trance]
+[Paul Van Dyk - Words](https://www.youtube.com/watch?v=9deJP2Xqy4I)  
 
-[Stefan Goldmann - Sleepy Hollow](https://www.youtube.com/watch?v=ybeQ3C6ld1E) [2006] [minimal trance/neo-trance]
+[Stefan Goldmann - Sleepy Hollow](https://www.youtube.com/watch?v=ybeQ3C6ld1E)  
 
 {arguable: minimal techno/deep house. Supposedly.)
 
-[William Orbit - Water from a Wine Leaf (Xfylem Flow mix)](https://www.youtube.com/watch?v=hnifmG3f2aY) [1992] [classic trance/ambient trance]
+[William Orbit - Water from a Wine Leaf (Xfylem Flow mix)](https://www.youtube.com/watch?v=hnifmG3f2aY)  [classic trance/ambient trance]
 
 {arguable - progressive house/ambient house}
 
@@ -266,71 +266,65 @@ Like an ancient tribal ceremony, plus aliens.
 
 {arguable - progressive house/"Border Community techno" [which is generally called neo-trance, any dispute here is silly]}
 
-[4Voice - Eternal Spirit](https://youtu.be/VJA6ucUcj6k) [1992] [classic trance]
+[4Voice - Eternal Spirit](https://youtu.be/VJA6ucUcj6k)  
 
-[Lost Tribe - Gamemaster](https://youtu.be/bboe1FRs2nI) [1997] [progressive trance/anthem trance]
+[Lost Tribe - Gamemaster](https://youtu.be/bboe1FRs2nI)  [progressive trance/anthem trance]
 
-[Rabbit In The Moon - Out Of Body Experience (Phase One - First Contact)](https://youtu.be/sSO-yzNNadw) [1994] [classic trance]
+[Rabbit In The Moon - Out Of Body Experience (Phase One - First Contact)](https://youtu.be/sSO-yzNNadw)  
 
-[Heartthrob - Baby Kate](https://www.youtube.com/watch?v=I62tmyorlek) [2006] [minimal trance/neo-trance]
+[Heartthrob - Baby Kate](https://www.youtube.com/watch?v=I62tmyorlek)  
 
 {arguable: minimal techno, although I think it's really too melodic for that}
 
-[Cydonia - Haunted World](https://youtu.be/o52r_AoNWws) [1999] [goa trance/psytrance]
+[Cydonia - Haunted World](https://youtu.be/o52r_AoNWws)  [goa trance/psytrance]
 
-Paragliders - Oasis [1995] [classic trance]
+[Paragliders - Oasis](https://youtu.be/x9Pmb8rYamk) [1995] 
 
-Ascension - Someone (Slacker's Rolling mix) [1998] [progressive trance/anthem trance]
+Ascension - Someone (Slacker's Rolling mix)  [progressive trance/anthem trance]  https://youtu.be/xlZsThQMibs
 
-Pob - Boiler (Humate mix) [1998] [progressive trance]
+Pob - Boiler (Humate mix)   https://youtu.be/Llm4Jjis3eM
 
-Shakta - Silicon Trip [1997] [goa trance/psytrance]
+Shakta - Silicon Trip [goa trance/psytrance] https://youtu.be/SD6MxTZ0fG0
 
-Underworld - Two Months Off [2002] [progressive trance/deep trance]
+Underworld - Two Months Off [2002] [progressive trance/deep trance] https://youtu.be/KsE9iXoXB6s
 
-{arguable - Progressive house}
+Armin Van Buuren - Blue Fear [1996]  https://youtu.be/vfgnh7Thp-A
 
-Armin Van Buuren - Blue Fear [1996] [progressive trance]
+Jurgen Paape - Mit Dir [2002]  https://youtu.be/DF1w0cSsdp4
 
-Jurgen Paape - Mit Dir [2002] [minimal trance/neo-trance]
+Claude Vonstroke - Who's Afraid of Detroit?   https://youtu.be/iCj_B1MHlfI
 
-{arguable - melodic minimal house/microhouse}
+Astral Projection - Dancing Galaxy https://youtu.be/KmL6DVS5bqM
 
-Claude Vonstroke - Who's Afraid of Detroit? [2006] [minimal trance/neo-trance]
+Art of Trance - Octopus https://youtu.be/C3ZPiNDwNy4
 
-Astral Projection - Dancing Galaxy [1997] [psytrance/goa trance]
+Moby - Go https://youtu.be/o72NpKj0nxw
 
-Art of Trance - Octopus [1994]
+Ronald Klinkenberg - Inner Laugh (James Holden mix) https://youtu.be/wFG5wnDYtaI
 
-Moby - Go [1992] [classic trance]
+Clanger - Seadog https://youtu.be/7jU5ZpsqSmM 
 
-Ronald Klinkenberg - Inner Laugh (James Holden mix) [2004] [deep trance/progressive trance]
+Solar Stone - Seven Cities  [ibiza trance] https://youtu.be/rB9SaTnh41M
 
-{arguable: progressive house}
+Technique - Sun is Shining (Mash Up Matt mix)   https://youtu.be/Jn8eWb7Y-x0
 
-Clanger - Seadog [1994] [classic trance/acid trance]
+Circuit - Transport Of Love  https://youtu.be/WMlR5Yz86R8
 
-Solar Stone - Seven Cities [1999] [ibiza trance]
-
-Technique - Sun is Shining (Mash Up Matt mix) [1999] [anthem trance/epic trance]
-
-Circuit - Transport Of Love [1994] [classic trance]
-
-Gouryella - Gouryella [1998] [anthem trance/epic trance]
+Gouryella - Gouryella  https://youtu.be/briVKxMcU0c
 
 Etnica - Spheric Concept [1996] [goa trance/psytrance]
 
-Pulser - Cloudwalking [1999] [anthem trance/epic trance]
+Pulser - Cloudwalking  
 
-Moogwai - Viola (Armin Van Buuren mix) [2001] [anthem trance/epic trance]
+Moogwai - Viola (Armin Van Buuren mix) [2001] 
 
-Tilt Vs. Paul Van Dyk - Rendezvous [1997] [anthem trance]
+Tilt Vs. Paul Van Dyk - Rendezvous  [anthem trance]
 
 Way Out West - The Gift [1995] [ambient trance/breaktrance]
 
-{arguable - ambient breaks}
+ 
 
-Goldenscan - Sunrise (DJ Tiesto mix) [1999] [anthem trance/epic trance]
+Goldenscan - Sunrise (DJ Tiesto mix)  
 
 DJ Misjah & DJ Tim - Access [1995] [hard acid trance/classic trance]
 
@@ -338,127 +332,117 @@ Union Jack - Two Full Moons and a Trout (Caspar Pound mix) [1993]
 
 Genlog - Airwalk [1995] [classic trance/hard trance]
 
-Pantha Du Prince - Walden [2006] [minimal trance/neo-trance]
+Pantha Du Prince - Walden  
 
-{arguable - "minimal"}
+ 
 
-Push - Universal Nation [1999] [anthem trance]
+Push - Universal Nation  [anthem trance]
 
-Art of Trance - The Colours (Indigo mix) [1993] [classic trance]
+Art of Trance - The Colours (Indigo mix) [1993] 
 
-Schiller - Das Glockenspiel (Humate mix) [1998] [progressive trance]
+Schiller - Das Glockenspiel (Humate mix)  
 
-Bedrock - Heaven Scent [1999] [progressive trance]
-
-{arguable: progressive house}
+Bedrock - Heaven Scent  
 
 Leama - Requiem For a Dream [2003] [ambient trance]
 
 Motorcycle - As The Rush Comes [2003] [deep trance]
 
-{arguable - progressive house}
-
-Nathan Fake - Outhouse [2004] [deep trance/progressive trance/neo-trance]
-
-{arguable - progressive house}
+Nathan Fake - Outhouse  [deep trance/progressive trance/neo-trance]
 
 Airwave - Alone in the Dark [2000] [progressive trance/anthem trance]
 
-X-Tracks - Plan 94 (The Voyage) [1994] [classic trance]
+X-Tracks - Plan 94 (The Voyage)  
 
 I love this song: it's like the musical equivalent of piloting a flying saucer. That melody at the end makes me feel like I'm falling to earth through an atmosphere of endless clouds.
 
-Barbarella - My Name is Barbarella [1992] [classic trance/ambient trance]
+Barbarella - My Name is Barbarella  [classic trance/ambient trance]
 
 {arguable - Ambient techno}
 
 Alibi - Eternity [2000] [anthem trance/tribal trance]
 
-York - The Reachers of Civilization [1999] [epic trance/anthem trance]
+York - The Reachers of Civilization  [epic trance/anthem trance]
 
-Caucasuss - Our Dream [1994] [classic trance]
+Caucasuss - Our Dream  
 
-Cydonia - Cactus [1999] [goa trance/psytrance]
+Cydonia - Cactus  [goa trance/psytrance]
 
-DJ Taucher - Atlantis [Phase 3] [1998] [anthem trance]
+DJ Taucher - Atlantis [Phase 3]  [anthem trance]
 
-The Visions of Shiva - How Much Can You Take? (Physical) [1993] [classic trance]
+The Visions of Shiva - How Much Can You Take? (Physical) [1993] 
 
 Drum Club - Sound System (Underworld Mix) [1995] [classic trance/progressive trance]
 
-Man With No Name - Silicon Trip [1996] [psytrance/goa trance]
+Man With No Name - Silicon Trip [1996] 
 
-Chicane - Salt Water [1999] [epic trance/ibiza trance]
+Chicane - Salt Water  [epic trance/ibiza trance]
 
 Ultraviolet - Kites (Fantasy Flite Part 1) [1995] [progressive trance/ambient trance/epic trance]
 
-{arguable - ambient breaks}
+Efdemin - Bergwein [2007] 
 
-Efdemin - Bergwein [2007] [minimal trance/neo-trance]
+Starecase - Faith (Loafer mix)  [epic trance/progressive trance]
 
-Starecase - Faith (Loafer mix) [2002] [epic trance/progressive trance]
-
-Lost Tribe - Angel [1997] [progressive trance]
+Lost Tribe - Angel  
 
 {arguable - ambient breaks/progressive breaks}
 
-Signum - Solar Level [1999] [epic trance]
+Signum - Solar Level  [epic trance]
 
-Dove Beat - La Palorma [1998] [epic trance/ibiza trance]
+Dove Beat - La Palorma  [epic trance/ibiza trance]
 
-Art of Trance - Deeper Than Deep [1993] [classic trance]
+Art of Trance - Deeper Than Deep [1993] 
 
 Booka Shade - Mandarine Girl [2005] [neo-trance/minimal trance]
 
 {arguable - electro-house}
 
-Above and Beyond - No One on Earth (Gabriel and Dresden mix) [2004] [progressive trance]
+Above and Beyond - No One on Earth (Gabriel and Dresden mix)  
 
-Riva - Stringer [2001] [progressive trance]
+Riva - Stringer [2001] 
 
-Claude Vonstroke - Who's Afraid of Detroit? [2006] [minimal trance/neo-trance]
+Claude Vonstroke - Who's Afraid of Detroit?  
 
 Hardfloor - Lost in the Silver Box [1993] [acid trance/classic trance]
 
 {arguable - acid}
 
-Johnny Shaker - Pearl River [1997] [anthem trance]
+Johnny Shaker - Pearl River  [anthem trance]
 
-Groovezone - I Love the Music [1998] [epic trance]
+Groovezone - I Love the Music  [epic trance]
 
 Coincedentally, another lost treasure that no one has ever heard of.
 
 Dominic Plaza - Sounds Rushing (David West mix) [2005] [epic trance]
 
-James Holden - A Break in the Clouds [2002] [neo-trance/minimal trance]
-
-{arguable - progressive house}
+James Holden - A Break in the Clouds  [neo-trance/minimal trance]
 
 DJ Tiesto - Dallas 4 PM [2001] [anthem trance]
 
 Kamaya Painters - Wasteland (DJ Hitchhiker mix)[2000] [epic trance]
 
-Blue Planet Corporation - Alidate [1999] [psytrance/goa trance]
+Blue Planet Corporation - Alidate  
 
-Chicane - Lost You Somewhere [1998] [Ibiza trance]
+Chicane - Lost You Somewhere  [Ibiza trance]
 
-Kaito - Soul of Heart [2004] [neo-trance]
+Kaito - Soul of Heart  [neo-trance]
 
 {arguable - tech-house(?)}
 
-Aztec Mystic - Night of the Jaguar [1999] [tech-trance]
+Aztec Mystic - Night of the Jaguar  [tech-trance]
 
 {arguable - detroit techno}
 
 James Holden vs. Ben Pound - Kaern Turned [tech-trance]
 
-Arpeggiators - Discover Your Innerself [1993] [classic trance]
+Arpeggiators - Discover Your Innerself [1993] 
 
-Juno Reactor - Samurai [1994] [goa trance/psytrance]
+Juno Reactor - Samurai  [goa trance/psytrance]
 
 Libra Presents Taylor - Anomaly - Calling Your Name [AKA BT ft. Jan Johnson] [1995] [classic trance/progressive trance]
 
-Ramin - Brainticket [1993] [classic trance]
+Ramin - Brainticket [1993] 
 
 Pole Folder - Apollo Vibes [2001] [deep trance]
 
@@ -468,7 +452,7 @@ Free Radical - Surreal (En-Motion Remix) [2001] [anthem trance]
 
 M.I.K.E. - Sunrise at Palamos [2000] [anthem trance]
 
-Blue Planet Corporation - Crystal [1999] [psytrance/goa trance]
+Blue Planet Corporation - Crystal  
 
 Solid Globe - North Pole [epic trance/anthem trance]
 
@@ -476,13 +460,13 @@ Chimera - Hypnotising [2002] [progressive trance/deep trance]
 
 {arguable - progressive house}
 
-Spicelab - Amorph [1992]
+Spicelab - Amorph 
 
 L.S.G. - Train of Thought 1.2
 
 Joker Jam - Innocence [2001] (progressive trance/anthem trance)
 
-Cosmic Baby - Fantasia (Airplay) [1994] [classic trance]
+Cosmic Baby - Fantasia (Airplay)  
 
 Rui Da Silva - Touch Me [2001] [deep trance]
 
@@ -496,11 +480,11 @@ Guy Gerber & Shlomi Aber - Sea of Sand [2007] [neo-trance/minimal trance]
 
 James Holden - One For You (Avus One For Heads mix) [2001]
 
-Petter - All Together [2004] [deep trance/neo-trance]
+Petter - All Together  [deep trance/neo-trance]
 
 {arguable - minimal techno/progressive house}
 
-Cherry Bomb - Eclipse [1994]
+Cherry Bomb - Eclipse 
 
 Vernon - Wonderer [1993]
 
@@ -510,7 +494,7 @@ Moonbeam - Sunshine [2007] [neo-trance/minimal trance]
 
 Blank and Jones - Nightclubbing [2001]
 
-Filterheadz - Yimanya [2004]
+Filterheadz - Yimanya 
 
 Faithless - Insomnia [1996] [anthem trance]
 
@@ -526,11 +510,11 @@ Quench - Dreams [1993]
 
 AFX - VBS.Redlof.B
 
-Partial Arts - Trauermusik [2007] [minimal trance/neo-trance]
+Partial Arts - Trauermusik [2007] 
 
 {arguable - minimal}
 
-Gypsy - I Trance You [1998]
+Gypsy - I Trance You 
 
 Breeder - Tyrantanic (Slacker's Kingdom Come Mix)
 
@@ -538,27 +522,27 @@ Breeder - Tyrantanic (Slacker's Kingdom Come Mix)
 
 Man With No Name - Teleport
 
-The Light - Expand The Room [1997]
+The Light - Expand The Room 
 
 {arguable - progressive house}
 
 Odyssee of Noises - Troya [1993]
 
-Bille Ray Martin - Honey (Chicane club mix) [1999]
+Bille Ray Martin - Honey (Chicane club mix) 
 
 Dynamic Maniax - Calling Middle Earth
 
 {arguable - hardcore(???)}
 
-Agnelli & Nelson - El Nino [1998]
+Agnelli & Nelson - El Nino 
 
 Alex Smoke - Chica Wappa (Mejor edit) [2005]
 
-Juno Reactor - Samurai [1994]
+Juno Reactor - Samurai 
 
-Marmion - Schoneburg (Man with No Name mix) [1994]
+Marmion - Schoneburg (Man with No Name mix) 
 
-Yahel - Going Up (trance mix) [1999]
+Yahel - Going Up (trance mix) 
 
 Chicane - Don't Give Up
 
@@ -572,11 +556,11 @@ LSG - Into Deep
 
 LN Movement - Golden Desert [2000]
 
-The Visions of Shiva - Perfect Day [1992]
+The Visions of Shiva - Perfect Day 
 
 Perpetuous Dreamer - Future Funland
 
-ATB - 9 PM (Till I Come) [1998] [ibiza trance]
+ATB - 9 PM (Till I Come)  [ibiza trance]
 
 West & Storm - Porpoise
 
@@ -584,9 +568,9 @@ West & Storm - Porpoise
 
 Solar Stone - Solarcoaster
 
-Juno Reactor - Feel the Universe (Kox Box mix) [1994]
+Juno Reactor - Feel the Universe (Kox Box mix) 
 
-Airwave & Markus Schulz - Angelica [2006]
+Airwave & Markus Schulz - Angelica 
 
 Oliver Klein - Rheinkraft (Ian Wilkie remix) [2001]
 
@@ -600,11 +584,11 @@ Space Manoeuvres - Part 1
 
 {arguable - progressive breaks}
 
-Max Graham - Airtight [2001] [progressive trance]
+Max Graham - Airtight [2001] 
 
 Transa - Supernova
 
-Aril Brikha - Winter [2007] [minimal trance/neo-trance]
+Aril Brikha - Winter [2007] 
 
 {arguable - "minimal"}
 
@@ -612,7 +596,7 @@ Aura - Energy Transpose
 
 {arguable - acid}
 
-Atlantis - Fiji (Cequenza mix) [1998] [epic trance]
+Atlantis - Fiji (Cequenza mix)  [epic trance]
 
 Extrawelt - Soopertrack [2005] [minimal trance/neo-trance/psytrance]
 
@@ -622,31 +606,31 @@ Kamaya Painters - Summerbreeze [2000]
 
 Blue Minds - Aquapunch (3 In One Mix)
 
-Paul Van Dyk - Columbia (PvD mix) [1999] [anthem trance/tech-trance]
+Paul Van Dyk - Columbia (PvD mix)  [anthem trance/tech-trance]
 
 The Green Martian - Industry [2001] [anthem trance/tech-trance]
 
 Catcher - Destiny Sunrise [2003] [ambient trance]
 
-Paul Van Dyk - My World [1994]
+Paul Van Dyk - My World 
 
 This is a really gorgeous track, that was completely overshadowed by Van Dyk's other 1994 masterpiece: For an Angel. Understandably overshadowed, but this one is pretty good too.
 
-Caunos - Herzsprung 1 [1993] [classic trance]
+Caunos - Herzsprung 1 [1993] 
 
-Resistance D - Cosmic Love [1991] [classic trance]
+Resistance D - Cosmic Love [1991] 
 
-Veracocha - Carte Blanche [1998]
+Veracocha - Carte Blanche 
 
 Tiesto & Junkie XL - Obsession
 
-Lazy Fat People - Club Silencio [2007] [minimal trance/neo-trance]
+Lazy Fat People - Club Silencio [2007] 
 
 X-Cabs - Neuro [1995]
 
-Juno - A Force Beyond [1995] [classic trance]
+Juno - A Force Beyond [1995] 
 
-Cygnus X - The Orange Theme [1994] [anthem trance]
+Cygnus X - The Orange Theme  [anthem trance]
 
 Jam & Spoon - Find Me (Odyssey to Anooya) [1993] [ibiza trance]
 
@@ -654,13 +638,13 @@ Listen to it beside Love Stimulation, and you'll notice...similarities. But I do
 
 Airwave - Escape From Nowhere
 
-Marc Vision - Time Gate (Original Mix) [1999]
+Marc Vision - Time Gate (Original Mix) 
 
 Ticon - We Are the Mammoth Hunters [2001] [psytrance/goa trance/minimal psy/psytekk]
 
 Blue Alphabet - Cybertrance
 
-Y Traxx - Mysteryland [1999] [ibiza trance]
+Y Traxx - Mysteryland  [ibiza trance]
 
 Blank and Jones - Watching the Waves [2002]
 
@@ -670,7 +654,7 @@ Jon the Dentist - Global Phases
 
 Cortex Thrill - Deep Infinity
 
-Moby - Porcelain [1999]
+Moby - Porcelain 
 
 {arguable - ambient breaks}
 
@@ -682,9 +666,9 @@ Berlin Inc - Berlin (Peace Mix)
 
 {arguable - hardcore???}
 
-William Orbit - Barber's Adagio for Strings [1999]
+William Orbit - Barber's Adagio for Strings 
 
-Jones & Stephenson - Gummiringe [1998]
+Jones & Stephenson - Gummiringe 
 
 Agnelli & Nelson - Everyday
 
@@ -704,19 +688,19 @@ Legend B - Lost in Love [1993]
 
 Minimalistix - Close Cover
 
-BT - Flaming June [1997]
+BT - Flaming June 
 
 Lucid - I Can't Help Myself
 
 Dawnseekers - Gothic Dream (Jon Johnson Remix) [2001]
 
-Sasha - Cloud Cuckoo (Luke Chable mix) [2004]
+Sasha - Cloud Cuckoo (Luke Chable mix) 
 
 Paul van Dyk - Reflections [2003]
 
 Nalin & Kane - Open Your Eyes [2000]
 
-Lange - I believe (DJ Tandu mix) [1999] [epic trance]
+Lange - I believe (DJ Tandu mix)  [epic trance]
 
 The Swimmer - Purple Cloud
 
@@ -726,9 +710,9 @@ Union Jack - Cactus
 
 Cygnus X - Positron [1993]
 
-The Quest - C Sharp [1999]
+The Quest - C Sharp 
 
-Moonstruck - Lunar Outbreak [1998]
+Moonstruck - Lunar Outbreak 
 
 Max Graham - Airtight [2001]
 
@@ -814,7 +798,7 @@ Der Dritte Raum - Hale Bopp
 
 Cass & Slide - Perception (Vocal Mix)
 
-Allure - When She Left [1998] [epic trance]
+Allure - When She Left  [epic trance]
 
 This is a lost treasure - many of you will have never heard of this. An earlier Tiesto track, but it's epic, melodic, gorgeous, and everything Tiesto wishes he could now do. If a bit too fluffy.
 
@@ -828,7 +812,7 @@ Alphazone - Rockin [2003]
 
 Ballroom - 4AM (Marc O'Tool Remix)
 
-Tekara - Breathe in You [1997]
+Tekara - Breathe in You 
 
 L.S.G. - I'm Not Existing
 
@@ -836,7 +820,7 @@ Flutlicht - Icarus (The Flight)
 
 Plummet - Damaged
 
-Darude - Sandstorm [1999] [anthem trance]
+Darude - Sandstorm  [anthem trance]
 
 This track is not a sellout, and it deserves much of the popular support it got. There is not one element to this track that panders to the masses any more than the rest of the anthem trance. I'll admit, there are better tunes that should also be imported to the mainstream, but this track is still pretty good.
 
@@ -860,13 +844,13 @@ Nikola Gala - Swing 2 Harmony
 
 {arguable - progressive house}
 
-808 State - Colony [1992]
+808 State - Colony 
 
 Hi-Gate - Pitchin'
 
 Solid Sessions - Janeiro
 
-Fascinated - Totally Fascinated [which is another Push/M.I.K.E alias] [2004]
+Fascinated - Totally Fascinated [which is another Push/M.I.K.E alias] 
 
 Evolution - Phoenix
 
@@ -906,7 +890,7 @@ Electrique Boutique - Revelation
 
 Gouryella - Ligaya
 
-Tranquility Base - Surrender [2004]
+Tranquility Base - Surrender 
 
 Yahel - Waves of Sound
 
@@ -968,11 +952,11 @@ Ambush - Ambush 2
 
 Mesh - Purple Haze
 
-Refekt ft. Deline Bass - Need to Feel loved [2004]
+Refekt ft. Deline Bass - Need to Feel loved 
 
 Cosmic Gate - Exploration of Space
 
-Effective Force - Diamond Bullet [1992]
+Effective Force - Diamond Bullet 
 
 Sunflower - Cold Turkey
 
@@ -994,7 +978,7 @@ Amnesia - Ibiza (Not really trance, it's actually EBM - the direct predecessor, 
 
 Blank and Jones - Electric Circus [2001]
 
-Cabala - Dark Blue [1999]
+Cabala - Dark Blue 
 
 Coca + Villa - La noche
 
@@ -1004,13 +988,13 @@ World Clique - Don't Do It
 
 Vector 7 - Air of Love [2002]
 
-Underworld - Thing in a Book [1992]
+Underworld - Thing in a Book 
 
 Astral Projection - Aqua Line Spirit
 
 Jonas Steur - Castamara [2005]
 
-Commander Tom - Attention! [2004]
+Commander Tom - Attention! 
 
 Rapid Eye - Circa Forever [2002]
 
@@ -1110,13 +1094,13 @@ Paul Van Dyk - Forbidden Fruit
 
 The Horrorist - One Night in New York City (it's seriously just techno)
 
-Sander Kleinenberg - The Fruit [2004] (Electro-house, inarguably)
+Sander Kleinenberg - The Fruit  (Electro-house, inarguably)
 
 Dark Suite - Dark Sweet Piano (Wally Lopez mix) (not trance at all)
 
 Recent Removals: [derivative, cheesy, annoying, undanceable, and/or undeniable not trance/entrancing, it all goes in here]
 
-Pulp Victim - The World [1998]
+Pulp Victim - The World 
 
 Rank 1 - Airwave
 
@@ -1126,7 +1110,7 @@ Benny Benassi - Satisfaction [2003]
 
 {arguable - electro-house}
 
-Alice Deejay - Better Off Alone [1998]
+Alice Deejay - Better Off Alone 
 
 Planet Perfecto - Bullet in the Gun
 
@@ -1134,7 +1118,7 @@ Ferry Corsten - Rock Your Body Rock [2003]
 
 DJ Shog - Another World {Quite possibly one of the worst producer names of all time. Besides the fact that putting "DJ" before your alias is ****ing idiotic, "Shog" is probably the stupidest slang term ever invented. Totally inappropriate too, considering it's an ebonic word: this is about the equivalent of a trance artist named DJ Murda-Thug. Only "shog" has no street cred as a colloquialism (ie: only wiggers say it), so it's like calling yourself DJ Fuzzy Street Soldja, playing fluffy trance, and thinking you're pretty hardcore. The track is also terrible.)
 
-Delerium - After All (Svenson & Gielson mix) [2004]
+Delerium - After All (Svenson & Gielson mix) 
 
 Aquagen - Summer is Calling
 
