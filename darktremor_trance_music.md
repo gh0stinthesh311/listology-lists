@@ -30,7 +30,7 @@ Final note: there are going to be songs on here that aren't perfectly 100% tranc
 
 then the track is disputable (or disputed) in some way.
 
-The genres essentially represented are ibiza trance, epic trance, psytrance/goa trance, anthem trance, , acid trance, ambient trance, tech-trance, and progressive trance. I am liberal with these categories, and what has also ended up on here is some trancier ambient house, acid techno, progressive house, tech-house, "minimal," and breaks. There is a limit, but it's blurry. For example, you won't find funky house, breakbeat hardcore, or aggrotech on here.
+The genres essentially represented are ibiza trance, epic trance, psytrance/goa trance, anthem trance, , acid trance, , tech-trance, and progressive trance. I am liberal with these categories, and what has also ended up on here is some trancier ambient house, acid techno, progressive house, tech-house, "minimal," and breaks. There is a limit, but it's blurry. For example, you won't find funky house, breakbeat hardcore, or aggrotech on here.
 
 [Humate - Love Simulation](https://www.youtube.com/watch?v=dQw4w9WgXcQ) (Paul van Dyk's Love mix)  [Ibiza trance]
 
@@ -48,7 +48,7 @@ That said, this version is a fantastic track, and still one of trance's first. I
 
 The track that defines everything that an ibiza anthem is, full of all of the excess and bombast of the island: pure dancable joy. The track's central hook is a long, arpeggiated melody looping such that the beginning and end melt together into an endless sphere. It sounds like sped-up 70's minimalism run through a 90's dark trance synth with a sub-tribal feel (it's the beats that do this). I'll admit, the build-up is a little bit cliche by now, but it wasn't really at the time, and for second-wave trance, it's as creative as it's going to get, and more than compensated by the spot-on anthem. In a not so surprising twist, this was initially written by one of the fathers of modern trance (Cosmic Baby), back in 1993 (they were always better at trance than the bedroom nerds and the corporate pop machine). It has gotten another remix every single year since 93, most of which are picked up by trance jocks and many of which go back on the club charts (the best is undoubtedly 1997's chart-topping Three N' One remix (although some prefer the 1998 Nalin & Kane version, and  addicts will love the original)).
 
-[Future Sound of London](https://www.youtube.com/watch?v=IAvHjoLxxh8) - Papua New Guinea [1991] [ambient trance/]
+[Future Sound of London](https://www.youtube.com/watch?v=IAvHjoLxxh8) - Papua New Guinea [1991] [/]
 
 Released in 1991, this song wasn't even intended to be trance - no one even used the word yet (although there was a fledgling sound growing in the underground house, rave, and techno scenes). It was meant to be ambient breaks, but "Papua New Guinea's" atmosphere was like little other electronic dance released at the time - ethereal, spacy, almost angelic, but still dancefloor-worthy, catchy, and even relaxing. The song instantly became a trance classic once the genre was brought into official existence in 1993, and deservingly so. Like it's predecessor "Age of Love," even today it can be played without sounding the slightest bit dated.
 
@@ -58,7 +58,7 @@ Released in 1991, this song wasn't even intended to be trance - no one even used
 
 **worth mentioning [Original 1995 Version](https://youtu.be/Ey7a8Km6Aw8)
 
-A melodic trance tune with stream-of-consciousness lyrics that become stranger with each listen, mainly beacuse they never really had any actual internal logic to begin with. The melody is unforgettably catchy, and contains a nice twist in the middle, in which it goes from being a wistful and pretty little ambient trancer, to a hard and abrasive swedish techno stormer, and pulls both off better than just about anything in either genre. Surprisingly, especially with this being, you know, actually good, this was a huge hit in Europe (it went to number 2 on the world chart in 1996-97), and gets at least two new remixes every year, at least one of which always goes back on the club charts (hopefully 2006 will be an exception? Honestly, they're never going to top the original). So, not only is it one of the best, it's also the most popular to still retain credibility.
+A melodic trance tune with stream-of-consciousness lyrics that become stranger with each listen, mainly beacuse they never really had any actual internal logic to begin with. The melody is unforgettably catchy, and contains a nice twist in the middle, in which it goes from being a wistful and pretty little r, to a hard and abrasive swedish techno stormer, and pulls both off better than just about anything in either genre. Surprisingly, especially with this being, you know, actually good, this was a huge hit in Europe (it went to number 2 on the world chart in 1996-97), and gets at least two new remixes every year, at least one of which always goes back on the club charts (hopefully 2006 will be an exception? Honestly, they're never going to top the original). So, not only is it one of the best, it's also the most popular to still retain credibility.
 
 {arguable - melodic techo(?)}
 
@@ -94,7 +94,7 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 {arguable - ambient acid techno(?)}
 
-[Orbital - Halcyon On & On](https://www.youtube.com/watch?v=bV-hSgL1R74)  [ambient trance]
+[Orbital - Halcyon On & On](https://www.youtube.com/watch?v=bV-hSgL1R74)  
 
 {arguable - ambient techno}
 
@@ -118,7 +118,7 @@ This track is simultaneously hard, twisted and beautiful, which is something I w
 
 [Salt Tank - Eugina](https://www.youtube.com/watch?v=3sCqR-rzjX8)  [ibiza trance]
 
-[The PQM - You Are Sleeping](https://www.youtube.com/watch?v=1HyS80Uf9a8) (Luke Chable Vocal mix)  [progressive trance/deep trance]
+[The PQM - You Are Sleeping](https://www.youtube.com/watch?v=1HyS80Uf9a8) (Luke Chable Vocal mix)  [progressive trance/]
 
 {arguable - progressive house}
 
@@ -188,7 +188,7 @@ Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay
 
 [The Thrillseekers - Synaesthesia ](https://www.youtube.com/watch?v=0XbrboMgYkU) [epic trance]
 
-[Leftfield - Phat Planet ](https://www.youtube.com/watch?v=5GC_X_tI5kA)  [deep trance] 
+[Leftfield - Phat Planet ](https://www.youtube.com/watch?v=5GC_X_tI5kA)   
 
 {arguable - progressive house}
 
@@ -198,7 +198,7 @@ Note: 1999 and 2000 are the same track, re-released for more guiltless radioplay
 
 [DJ Tiesto - Suburban Train](https://www.youtube.com/watch?v=eRIGWAyDzD8) [epic trance]
 
-[James Holden - Nothing (93 Returning mix)](https://www.youtube.com/watch?v=oD8cRAjFB1w) [2003] 
+[James Holden - Nothing (93 Returning mix)](https://www.youtube.com/watch?v=oD8cRAjFB1w)  
 
 [Roland Appel - Dark Soldier](https://www.youtube.com/watch?v=q325Zm33fws) [2007] 
 
@@ -210,7 +210,7 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arguable - minimal. But argue with me that it's really minimal and not trance at all and I'll actually beat you down. I will find out where you live, and I will beat you down. It's got breakdowns, dammit, BREAKDOWNS. Yeah, minimal. Right.}
 
-[Orbital - Belfast](https://www.youtube.com/watch?v=5HNtsdtnBfk)  [ambient trance]
+[Orbital - Belfast](https://www.youtube.com/watch?v=5HNtsdtnBfk)  
 
 [Art of Trance - Madagascar (Cygnus X mix)](https://www.youtube.com/watch?v=SoupqmAOcmw)  [epic trance/anthem trance]
 
@@ -226,7 +226,7 @@ This is the only trance track on the entire list that I fell in love with during
 
 {arugable - minimal techno(?)}
 
-[Banco De Gaia - Last Train to Lhasa](https://www.youtube.com/watch?v=5E20iADAe6g)  [/ambient trance]
+[Banco De Gaia - Last Train to Lhasa](https://www.youtube.com/watch?v=5E20iADAe6g)  [/]
 
 {arguable - ambient house/progressive house}
 
@@ -246,7 +246,7 @@ Like an ancient tribal ceremony, plus aliens.
 
 {arugable - psy. But really, think about it. Psy...trance. PsyTRANCE.}
 
-[Petter - These Days](https://www.youtube.com/watch?v=mN3JsaHPVtk)  [deep trance/neo-trance]
+[Petter - These Days](https://www.youtube.com/watch?v=mN3JsaHPVtk)  [/neo-trance]
 
 {arguable - progressive breaks}
 
@@ -258,7 +258,7 @@ Like an ancient tribal ceremony, plus aliens.
 
 {arguable: minimal techno/deep house. Supposedly.)
 
-[William Orbit - Water from a Wine Leaf (Xfylem Flow mix)](https://www.youtube.com/watch?v=hnifmG3f2aY)  [/ambient trance]
+[William Orbit - Water from a Wine Leaf (Xfylem Flow mix)](https://www.youtube.com/watch?v=hnifmG3f2aY)  [/]
 
 {arguable - progressive house/ambient house}
 
@@ -286,7 +286,7 @@ Pob - Boiler (Humate mix)   https://youtu.be/Llm4Jjis3eM
 
 Shakta - Silicon Trip  https://youtu.be/SD6MxTZ0fG0
 
-Underworld - Two Months Off [2002] [progressive trance/deep trance] https://youtu.be/KsE9iXoXB6s
+Underworld - Two Months Off [2002] [progressive trance/] https://youtu.be/KsE9iXoXB6s
 
 Armin Van Buuren - Blue Fear   https://youtu.be/vfgnh7Thp-A
 
@@ -340,11 +340,11 @@ Schiller - Das Glockenspiel (Humate mix) https://youtu.be/9iVdQWrUwOI
 
 Bedrock - Heaven Scent https://youtu.be/H4UkF_l_HY4
 
-Leama - Requiem For a Dream [2003] [ambient trance]
+Leama - Requiem For a Dream  
 
-Motorcycle - As The Rush Comes [2003] [deep trance]
+Motorcycle - As The Rush Comes https://youtu.be/FGH8rnraxoE 
 
-Nathan Fake - Outhouse  [deep trance/progressive trance/neo-trance]
+Nathan Fake - Outhouse  [/progressive trance/neo-trance]
 
 Airwave - Alone in the Dark [2000] [progressive trance/anthem trance]
 
@@ -352,7 +352,7 @@ X-Tracks - Plan 94 (The Voyage)
 
 I love this song: it's like the musical equivalent of piloting a flying saucer. That melody at the end makes me feel like I'm falling to earth through an atmosphere of endless clouds.
 
-Barbarella - My Name is Barbarella  [/ambient trance]
+Barbarella - My Name is Barbarella  [/]
 
 {arguable - Ambient techno}
 
@@ -374,7 +374,7 @@ Man With No Name - Silicon Trip
 
 Chicane - Salt Water  [epic trance/ibiza trance]
 
-Ultraviolet - Kites (Fantasy Flite Part 1)  [progressive trance/ambient trance/epic trance]
+Ultraviolet - Kites (Fantasy Flite Part 1)  [progressive trance//epic trance]
 
 Efdemin - Bergwein [2007] 
 
@@ -440,7 +440,7 @@ Libra Presents Taylor - Anomaly - Calling Your Name [AKA BT ft. Jan Johnson]  [/
 
 Ramin - Brainticket  
 
-Pole Folder - Apollo Vibes [deep trance]
+Pole Folder - Apollo Vibes 
 
 {arguable - progressive house}
 
@@ -452,7 +452,7 @@ Blue Planet Corporation - Crystal
 
 Solid Globe - North Pole [epic trance/anthem trance]
 
-Chimera - Hypnotising [2002] [progressive trance/deep trance]
+Chimera - Hypnotising [2002] [progressive trance/]
 
 {arguable - progressive house}
 
@@ -464,7 +464,7 @@ Joker Jam - Innocence (progressive trance/anthem trance)
 
 Cosmic Baby - Fantasia (Airplay)  
 
-Rui Da Silva - Touch Me [deep trance]
+Rui Da Silva - Touch Me 
 
 {arguable - progressive house}
 
@@ -476,7 +476,7 @@ Guy Gerber & Shlomi Aber - Sea of Sand [2007] [neo-trance/minimal trance]
 
 James Holden - One For You (Avus One For Heads mix) [2001]
 
-Petter - All Together  [deep trance/neo-trance]
+Petter - All Together  [/neo-trance]
 
 {arguable - minimal techno/progressive house}
 
@@ -606,7 +606,7 @@ Paul Van Dyk - Columbia (PvD mix)  [anthem trance/tech-trance]
 
 The Green Martian - Industry [anthem trance/tech-trance]
 
-Catcher - Destiny Sunrise [2003] [ambient trance]
+Catcher - Destiny Sunrise  
 
 Paul Van Dyk - My World 
 
@@ -692,7 +692,7 @@ Dawnseekers - Gothic Dream (Jon Johnson Remix) [2001]
 
 Sasha - Cloud Cuckoo (Luke Chable mix) 
 
-Paul van Dyk - Reflections [2003]
+Paul van Dyk - Reflections 
 
 Nalin & Kane - Open Your Eyes [2000]
 
@@ -722,7 +722,7 @@ Andain - Summer Calling [2002]
 
 {arguable - progresive house}
 
-Sensient - File Not Found [psytrance/minimal psy] [2003]
+Sensient - File Not Found [psytrance/minimal psy] 
 
 Push - The Legacy
 
@@ -732,7 +732,7 @@ Ferry Corsten - Punk [2002]
 
 Dance 2 Trance - Power of American Natives
 
-Andain - Beautiful Things [2003]
+Andain - Beautiful Things 
 
 {arguable - progressive house}
 
@@ -800,11 +800,11 @@ This is a lost treasure - many of you will have never heard of this. An earlier 
 
 Jericho - Personal Reflexion
 
-Three Drives - Air Traffic [2003]
+Three Drives - Air Traffic 
 
 Gabriel & Dresden - Arcadia
 
-Alphazone - Rockin [2003]
+Alphazone - Rockin 
 
 Ballroom - 4AM (Marc O'Tool Remix)
 
@@ -874,7 +874,7 @@ Coast 2 Coast ft Discovery - Home
 
 4 Strings - Diving (Cosmic Gate mix)
 
-Sasha - Wavy Gravy [ambient trance]
+Sasha - Wavy Gravy 
 
 Juno Reactor - Pistolero (Man With no Name mix)
 
@@ -1022,7 +1022,7 @@ Arrakis - The Spice
 
 Chicane - Sunstroke
 
-Kyau vs. Albert - Velvet Morning [2003]
+Kyau vs. Albert - Velvet Morning 
 
 T-Scanner - Trip To Heaven
 
@@ -1058,7 +1058,7 @@ The Voyager - Back on Earth
 
 _Note: "Not trance at all, but excellent tracks" removals:
 
-The Orb - Little Fluffy Clouds [1991] [ambient trance]
+The Orb - Little Fluffy Clouds [1991] 
 
 This is ambient house, and not even slightly definable as trance. I foolishly left it on the list for so long that I didn't want to remove it. I was quite foolish.).
 
@@ -1084,7 +1084,7 @@ Orbital - One Perfect Sunrise
 
 Ian Van Dahl - Castles in the Sky
 
-P.O.S. - Remember [2003]
+P.O.S. - Remember 
 
 Paul Van Dyk - Forbidden Fruit
 
@@ -1102,7 +1102,7 @@ Rank 1 - Airwave
 
 Delerium ft Sarah Machlachlan - Silence (Tiesto mix) [2000]
 
-Benny Benassi - Satisfaction [2003]
+Benny Benassi - Satisfaction 
 
 {arguable - electro-house}
 
@@ -1110,7 +1110,7 @@ Alice Deejay - Better Off Alone
 
 Planet Perfecto - Bullet in the Gun
 
-Ferry Corsten - Rock Your Body Rock [2003]
+Ferry Corsten - Rock Your Body Rock 
 
 DJ Shog - Another World {Quite possibly one of the worst producer names of all time. Besides the fact that putting "DJ" before your alias is ****ing idiotic, "Shog" is probably the stupidest slang term ever invented. Totally inappropriate too, considering it's an ebonic word: this is about the equivalent of a trance artist named DJ Murda-Thug. Only "shog" has no street cred as a colloquialism (ie: only wiggers say it), so it's like calling yourself DJ Fuzzy Street Soldja, playing fluffy trance, and thinking you're pretty hardcore. The track is also terrible.)
 
