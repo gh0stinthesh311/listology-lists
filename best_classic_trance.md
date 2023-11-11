@@ -60,13 +60,13 @@ And finally, here's the list:
 - Microglobe - High On Hope (Long Hot Summer) [1992]
 - The Essence Of Nature - Blue Lotus [1994]
 - Mystic Force - Mystic Force [1994]
-- Union Jack - Red Herring [1995]
-- Banco De Gaia - Last Train To Lhasa [1995]
+- Union Jack - Red Herring 
+- Banco De Gaia - Last Train To Lhasa 
 - Third Eye - New Life [1993]
 - 4Voice - Music Hypnotizes (Hypnotizing Mix) [1992]
-- Aura - Caterpillar (Kilner Mix) [1995]
+- Aura - Caterpillar (Kilner Mix) 
 - Hardfloor - Acperience 1 [1992]
-- Cygnus X - Turn Around [1995]
+- Cygnus X - Turn Around 
 - Dance 2 Trance - Take A Free Fall (Beyond The Stars Mix) [1993]
 - Velocity - Lust (Rabbit In The Moon Remix) [1994]
 - Virtual Symmetry - See You [1993]
@@ -75,18 +75,18 @@ And finally, here's the list:
 - Balil - Parasight [1993]
 - Quench - Dreams (Extended Mix) [1993]
 - Union Jack - Two Full Moons & A Trout (Caspar Pound Mix) [1994]
-- Paragliders - Oasis (Original Version) [1995]
+- Paragliders - Oasis (Original Version) 
 - Lemon Sol - Aquamarine (Deep Blue Mix) [1993]
 - Resistance D - Airwalker [1994]
 - Friends, Lovers & Family - Diamond Lil's [1994]
 - Sequential - Prophet (Original Mix) [1992]
 - Illuminatus - Hope (Oliver Lieb Remix) [1994]
-- X-Cabs - Neuro [1995]
+- X-Cabs - Neuro 
 - Influx - Braineater [1993]
 - Jones & Stephenson - The First Rebirth [1993]
 - Hardfloor - Trancescript [1993]
 - Tranceporter - Base [1992]
-- Salamander - Tempest (Union Jack Remix) [1995]
+- Salamander - Tempest (Union Jack Remix) 
 - Dance 2 Trance - Let's Get Rollin' [1991]
 - Cygnus X - Positron [1993]
 - Effective Force - Punishing The Atoms (Paul Van Dyk Remix) [1994]
@@ -95,13 +95,13 @@ And finally, here's the list:
 - Atlantic Ocean - Waterfall [1993]
 - Instant Zen - Plutonia [1994]
 - 2 Puissance 30 - Le Trou Normand [1994]
-- X-Cabs - Avalon [1995]
+- X-Cabs - Avalon 
 - Goahead - Free Beach (Anjuna Mix) [1993]
 - Virtual Symmetry - Mammal (Mix 2) [1994]
 - Sven Väth - L'Esperanza (Hope Will Move Mountains Mix) [1993]
-- Blue Ocean - Touch Me [1995]
+- Blue Ocean - Touch Me 
 - Tranceporter - Open Up Your Mind [1992]
-- Sloane Strangers - A Mike Of Minstrel [1995]
+- Sloane Strangers - A Mike Of Minstrel 
 - Cosmic Baby - Liebe (Red) [1992]
 - Solar Quest - Acid Air Raid (George's All Nighter) [1994]
 - Tranceformer - Be My Lover [1993]
@@ -109,35 +109,35 @@ And finally, here's the list:
 - Nikolai - Look In The Future (Original Mix) [1993]
 - Odyssee Of Noises - Firedance (The Sunrise) [1994]
 - Voov - It's Anything You Want It To Be, And It's A Gas (Smoke Machine) [1992]
-- Poltergeist - Vicious Circles (Union Jack Remix) [1995]
+- Poltergeist - Vicious Circles (Union Jack Remix) 
 - Bassman / De La Ray - The Real Trance [1992]
 - Dance 2 Trance - Power Of American Natives (Dance 2 Trance Remix) [1992]
 - Cygnus X - The Orange Theme [1994]
 - Cosmic Baby - A Tribute To Blade Runner (Dance Title 1) [1994]
 - Be-Zet - Blue Illusion (Flat Horizon Mix) [1994]
 - Third Eye - Siddha Loka [1993]
-- Humate & Rabbit In The Moon - East (The Opium Den Mix) [1995]
+- Humate & Rabbit In The Moon - East (The Opium Den Mix) 
 - Marmion - Schöneberg [1993]
 - Komakino - Frogs In Space [1991]
 - Jam & Spoon - Odyssey To Anyoona [1993]
 - Progressive Attack - Cyberlove [1993]
 - Effective Force - Illuminate The Planet (World In Order Mix) [1993]
 - Energy 52 - Café Del Mar (DJ Kid Paul Mix) [1993]
-- Art Of Trance - Octopus [1995]
-- DJ Dave Davis - Transfiguration [1995]
+- Art Of Trance - Octopus 
+- DJ Dave Davis - Transfiguration 
 - Nicely - Away The Throttle Pedal Stop (Remix By Pinocchio) [1993]
-- Tranceformer - Lunatic Angel (Tranceformed Mix) [1995]
-- Humate - 3.2 [1995]
+- Tranceformer - Lunatic Angel (Tranceformed Mix) 
+- Humate - 3.2 
 - Dance 2 Trance - Hello San Francisco [1992]
 - Aurora Borealis - The Milky Way [1994]
-- Y Traxx - Mystery Land [1995]
+- Y Traxx - Mystery Land 
 - Spicelab - We Got Spice (Spicelab Full Flavour Mix) [1994]
 - Afrotrance - Spiritual Energy [1994]
 - Microbots - Freedom [1992]
 - Paul Van Dyk - For An Angel [1994]
 - Odyssee Of Noises - Capriole One [1994]
-- R-Damski - Acoustic Nature [1995]
-- Sloane Strangers - Mind Over Matter [1995]
+- R-Damski - Acoustic Nature 
+- Sloane Strangers - Mind Over Matter 
 - Levent Canseven feat. Filipovic - People
 - Jens - Loops & Tings (Froot Loops Remix) [1994]
 - Aurora Borealis - Aurora Borealis (Orange Mix) [1993]
@@ -154,24 +154,24 @@ And finally, here's the list:
 - Infinite Aura - C-Trance [1993]
 - Earth Nation - Alienated (Earth Mix) [1994]
 - Banco De Gaia - Heliopolis (Eudopolis Dog Mix) [1994]
-- Baby Doc - The Temptation Of The Matahari [1995]
-- DJ Dave Davis - Assyrian Transfixion [1995]
+- Baby Doc - The Temptation Of The Matahari 
+- DJ Dave Davis - Assyrian Transfixion 
 - Hearts Of Space - With A Medium Into Trance (Drop Out Mix) [1993]
 - BassXPansion - Acid Bird [1993]
-- Cygnus X - Kinderlied Part 2 [1995]
+- Cygnus X - Kinderlied Part 2 
 - Dance 2 Trance - Where Is Dag? [1991]
 - Pergon - The Deliverer [1993]
-- B-Zet - Playing Children [1995]
+- B-Zet - Playing Children 
 - Transformer 2 - Pacific Symphony (Original Version) [1992]
 - Odysee Of Noises - Troja [1994]
-- Taucher - Infinity (Phase 1) [1995]
+- Taucher - Infinity (Phase 1) 
 - BassXPansion - Your Ears Are Mine [1993]
 - The Eternal Rhythm - Tranzlusion (Master Mix) [1994]
 - Joe T. Vannelli - Play With The Voice In Germany [1994]
 - Ongaku - Mihon #3 [1992]
 - Cosmic Baby - Oh Supergirl [1992]
 - Rainforest - The Birds (Deep Trance Mix) [1993]
-- Art Of Trance - Orange [1995]
+- Art Of Trance - Orange 
 - The Visions Of Shiva - A New Beginning [1993]
 - Paul Van Dyk - Emergency! [1994]
 - Sven Väth - An Accident In Paradise [1992]
@@ -179,30 +179,30 @@ And finally, here's the list:
 - Arpeggiators - Express Yourself [1993]
 - Car & Driver - Drive [1992]
 - Legend B - Lost In Love (Sysex Style Mix) [1994]
-- Virus - Sun (Oakenfold/Osborne Mix) [1995]
-- Commander Tom - Are Am Eye? [1995]
+- Virus - Sun (Oakenfold/Osborne Mix) 
+- Commander Tom - Are Am Eye? 
 - L.S.G. - Blueprint (Version 1) [1994]
 - Lazonby - Sacred Cycles (Original Mix) [1994]
 - Futurhythm - Phuture [1992]
-- B-Zet - Le Tonnere Dans Les Plumes Voir [1995]
-- L.S.G. - My Time Is Yours [1995]
+- B-Zet - Le Tonnere Dans Les Plumes Voir 
+- L.S.G. - My Time Is Yours 
 - Love Inc. - Trance Atlantic XS [1992]
 - Summerbreeze - Summerbreeze [1993]
 - Way Out West - Montana (Lakota Mix) [1994]
 - Cosmic Baby - Cosmic Greets Florida [1994]
 - B-Zet - Walk Now [1993]
-- X-Cabs - Adena [1995]
+- X-Cabs - Adena 
 - Vinyl Blair - The Trancespotter (Turbo Nation Trance Groove) [1993]
 - Underworld - Thing In A Book [1994]
 - Cosmic Baby - The Space Track (CD Album Mix) [1992]
 - Humate - Curious (Inquisitive Remix By Paul Van Dyk) [1993]
 - Aquaform - El Sueno [1994]
-- Emmanuel Top - Turkish Bazar [1995]
+- Emmanuel Top - Turkish Bazar 
 - Virtual Symmetry - The V.S. (Original Mix) [1994]
 - Mirage - Airborn [1993]
 - Earth Nation - An Artificial Dream (Glacier Mix) [1994]
 - Union Jack - Cactus [1994]
-- Sven Väth - Ballet-Fusion (Original) [1995]
+- Sven Väth - Ballet-Fusion (Original) 
 - Quietman - Plastic Gourd [1994]
 - Sjef Van Leeuwen - 2nd Horizon [1993]
 - Sonic Infusion - Magnifica [1993]
@@ -224,13 +224,13 @@ And finally, here's the list:
 - Sven Väth - Ritual Of Life (The Spicelab Mix) [1993]
 - DJ Hooligan - The Culture [1994]
 - Taucher - Atlantis Atlantis (The Realmix) [1993]
-- Cygnus X - Deliberation [1995]
+- Cygnus X - Deliberation 
 - Yves DeRuyter - Trance City [1993]
-- Wippenberg - Neurodancer (Original Version) [1995]
+- Wippenberg - Neurodancer (Original Version) 
 - Dissidenten - Jungle Book Part II (B-Zet Mix) [1994]
 - Phrenetic System - Dark Symphony [1993]
 - Virtualmismo - Cosmonautica (Moontrip Mix) [1993]
-- Blu Peter - Magic (Original Mix) [1995]
+- Blu Peter - Magic (Original Mix) 
 - Paragon - Everything Was Legal [1993]
 - Spicelab - Spice Is A Fulltime Occupation [1993]
 - B-Zet - Outerspace Girl [1993]
@@ -241,5 +241,5 @@ And finally, here's the list:
 - The Ambush - Ambush 2 [1993]
 - Azid Force - Far Form E (Remix) [1993]
 - Phax - Flight 101 [1993]
-- Virtual Symmetry - Information (Original Mix) [1995]
+- Virtual Symmetry - Information (Original Mix) 
 - Lunatic Asylum - Chapter I : The Meltdown [1993]
