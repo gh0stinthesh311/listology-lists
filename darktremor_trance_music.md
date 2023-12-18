@@ -340,7 +340,7 @@ Schiller - Das Glockenspiel (Humate mix) https://youtu.be/9iVdQWrUwOI
 
 Bedrock - Heaven Scent https://youtu.be/H4UkF_l_HY4
 
-Leama - Requiem For a Dream  
+Leama - Requiem For a Dream https://youtu.be/Hdrak9znw1M
 
 Motorcycle - As The Rush Comes https://youtu.be/FGH8rnraxoE 
 
@@ -348,23 +348,23 @@ Nathan Fake - Outhouse  [/progressive trance/neo-trance]
 
 Airwave - Alone in the Dark [2000] [progressive trance/anthem trance]
 
-X-Tracks - Plan 94 (The Voyage)  
+X-Tracks - Plan 94 (The Voyage) https://youtu.be/GbZTF4KJgi4  
 
 I love this song: it's like the musical equivalent of piloting a flying saucer. That melody at the end makes me feel like I'm falling to earth through an atmosphere of endless clouds.
 
-Barbarella - My Name is Barbarella  [/]
+Barbarella - My Name is Barbarella https://youtu.be/1c1itxuEQR8 
 
-{arguable - Ambient techno}
+Alibi - Eternity https://youtu.be/cHoQ9s8Pv9w
 
-Alibi - Eternity [2000] [anthem trance/tribal trance]
+York - The Reachers of Civilization https://youtu.be/3oenx_6rhBI
 
-York - The Reachers of Civilization  [epic trance/anthem trance]
+Honorable mention: https://youtu.be/waSuWCvPIgA
 
-Caucasuss - Our Dream  
+Caucasuss - Our Dream https://youtu.be/UuDTAPQSgdM  
 
-Cydonia - Cactus  
+Cydonia - Cactus https://youtu.be/hC9G9ASUuU8 
 
-DJ Taucher - Atlantis [Phase 3]  
+DJ Taucher - Atlantis [Phase 3] https://youtu.be/sItKyU49VCE  
 
 The Visions of Shiva - How Much Can You Take? (Physical)  
 
