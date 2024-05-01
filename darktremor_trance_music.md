@@ -459,33 +459,27 @@ James Holden - One For You (Avus One For Heads mix) https://youtu.be/lJiztQew65c
 
 Petter - All Together  https://youtu.be/VdTNLl5MQcQ
 
-Cherry Bomb - Eclipse 
+Cherry Bomb - Eclipse https://youtu.be/vRY2eD-zQFw
 
-Vernon - Wonderer 
+Vernon - Wonderer https://youtu.be/xasxXHKsrQk
 
-Moonbeam - Sunshine  
+Moonbeam - Sunshine https://youtu.be/MwypSzhRkPo
 
-Blank and Jones - Nightclubbing 
+Blank and Jones - Nightclubbing https://youtu.be/cL_hosyFMSU
 
-Filterheadz - Yimanya 
+Filterheadz - Yimanya https://youtu.be/89etSg2gRYs
 
-Faithless - Insomnia  
+Faithless - Insomnia  https://www.youtube.com/watch?v=P8JEm4d6Wu4
 
-{arguable: stadium house}
+Minilogue - Elephant's Parade  https://youtu.be/WtkgvBEEIHk
 
-Minilogue - Elephant's Parade  
+Evolution - Phoenix https://youtu.be/1DfDTyJEz6Y
 
- "minimal"}
+Quench - Dreams https://youtu.be/OPvhUpnocx0
 
-Evolution - Phoenix
-
-Quench - Dreams 
-
-AFX - VBS.Redlof.B
+AFX - VBS.Redlof.B https://youtu.be/EAKDde-VNeI
 
 Partial Arts - Trauermusik  
-
- minimal}
 
 Gypsy - I Trance You 
 
