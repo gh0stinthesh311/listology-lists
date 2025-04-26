@@ -545,13 +545,13 @@ Aril Brikha - Winter https://youtu.be/RDSGGvNHgTc
  
 Aura - Energy Transpose https://youtu.be/kw35hYEJcGw
 
-Atlantis - Fiji (Cequenza mix)  
+Atlantis - Fiji (Cequenza mix) https://youtu.be/fvJZ-ch6y3g
 
-Extrawelt - Soopertrack  [minimal trance//psytrance]
+Extrawelt - Soopertrack https://youtu.be/sdl7PZmlGQI
 
-Kamaya Painters - Summerbreeze 
+Kamaya Painters - Summerbreeze https://youtu.be/NGmfdELZtsk
 
-Blue Minds - Aquapunch (3 In One Mix)
+Blue Minds - Aquapunch (3 In One Mix) 
 
 Paul Van Dyk - Columbia (PvD mix)  tech-trance]
 
