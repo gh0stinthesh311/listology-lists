@@ -521,45 +521,33 @@ The Visions of Shiva - Perfect Day  https://youtu.be/CnAxFDF15Uo
 
 Perpetuous Dreamer - Future Funland https://youtu.be/K58HtKLolSk
 
-ATB - 9 PM (Till I Come)  
+ATB - 9 PM (Till I Come) https://youtu.be/XK-LlnnQ71I
 
-West & Storm - Porpoise
+West & Storm - Porpoise https://youtu.be/X2m3Bg2IpRs
 
-Solar Stone - Solarcoaster
+Solar Stone - Solarcoaster https://youtu.be/DXceeHi5Zk4
 
-Juno Reactor - Feel the Universe (Kox Box mix) 
+Juno Reactor - Feel the Universe (Kox Box mix) https://youtu.be/IRJBu_JvOyQ
 
-Airwave & Markus Schulz - Angelica 
+Airwave & Markus Schulz - Angelica https://youtu.be/M8mA1-hfSQY
 
-Oliver Klein - Rheinkraft (Ian Wilkie remix) 
+Oliver Klein - Rheinkraft (Ian Wilkie remix) https://youtu.be/evP6g2uAokA
 
- techno}
+James Holden - I Have Put Out The Light https://youtu.be/ZM1bI5V-0rg
 
-James Holden - I Have Put Out The Light 
+Space Manoeuvres - Part 1 https://youtu.be/mrMxYMsdqA4
 
+Max Graham - Airtight https://youtu.be/tapA9Ajsp3M
+
+Transa - Supernova https://youtu.be/uezRg6IoCz4
+
+Aril Brikha - Winter https://youtu.be/RDSGGvNHgTc
  
-
-Space Manoeuvres - Part 1
-
- progressive breaks}
-
-Max Graham - Airtight 
-
-Transa - Supernova
-
-Aril Brikha - Winter  
-
- "minimal"}
-
-Aura - Energy Transpose
-
- acid}
+Aura - Energy Transpose https://youtu.be/kw35hYEJcGw
 
 Atlantis - Fiji (Cequenza mix)  
 
 Extrawelt - Soopertrack  [minimal trance//psytrance]
-
- progressive house/minimal}
 
 Kamaya Painters - Summerbreeze 
 
