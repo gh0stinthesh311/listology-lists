@@ -499,35 +499,31 @@ Dynamic Maniax – Calling Middle Earth https://youtu.be/6tGDjkFH98Y
 
 Agnelli & Nelson – El Nino https://youtu.be/qePY9hcWTbQ
 
-Alex Smoke – Chica Wappa (Mejor Edit) 
+Alex Smoke – Chica Wappa (Mejor Edit) https://youtu.be/eLnvutv7_FY
 
-Juno Reactor – Samurai 
+Juno Reactor – Samurai https://youtu.be/6KzCAlc5H5Y
 
-Marmion – Schöneberg (Man With No Name Mix) 
+Marmion – Schöneberg (Man With No Name Mix) https://youtu.be/lvWlHtxJhaA
 
-Yahel – Going Up (Trance Mix) 
+Yahel – Going Up (Trance Mix) https://youtu.be/bQoIcQnIWWg
 
-Chicane – Don't Give Up 
+Chicane – Don't Give Up https://youtu.be/mp1IJ6OkOsU
 
-Albion - Air
+Albion - Air https://youtu.be/Q9ZBUtANFNQ
 
-030 - Midnight in Europe
+030 - Midnight in Europe https://youtu.be/ZKNEiqFqvNA
 
- 
+LSG - Into Deep https://youtu.be/rYZqrStqZ9I
 
-LSG - Into Deep
+LN Movement - Golden Desert https://youtu.be/k4ldeeGwUbY
 
-LN Movement - Golden Desert 
+The Visions of Shiva - Perfect Day  https://youtu.be/CnAxFDF15Uo
 
-The Visions of Shiva - Perfect Day 
-
-Perpetuous Dreamer - Future Funland
+Perpetuous Dreamer - Future Funland https://youtu.be/K58HtKLolSk
 
 ATB - 9 PM (Till I Come)  
 
 West & Storm - Porpoise
-
- hardcore (apparently)}
 
 Solar Stone - Solarcoaster
 
