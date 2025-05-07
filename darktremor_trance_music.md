@@ -551,13 +551,13 @@ Extrawelt - Soopertrack https://youtu.be/sdl7PZmlGQI
 
 Kamaya Painters - Summerbreeze https://youtu.be/NGmfdELZtsk
 
-Blue Minds - Aquapunch (3 In One Mix) 
+Blue Minds - Aquapunch (3 In One Mix) https://youtu.be/5wzOBokyFlI
 
-Paul Van Dyk - Columbia (PvD mix)  tech-trance]
+Paul Van Dyk - Columbia (PvD mix) https://youtu.be/bOKsx5xKQKU
 
-The Green Martian - Industry tech-trance]
+The Green Martian - Industry https://youtu.be/B6EpT50oQ18
 
-Catcher - Destiny Sunrise  
+Catcher - Destiny Sunrise https://youtu.be/eQa-JGgdd3s
 
 Paul Van Dyk - My World 
 
