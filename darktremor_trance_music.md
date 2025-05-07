@@ -559,17 +559,17 @@ The Green Martian - Industry https://youtu.be/B6EpT50oQ18
 
 Catcher - Destiny Sunrise https://youtu.be/eQa-JGgdd3s
 
-Paul Van Dyk - My World 
+Paul Van Dyk - My World https://youtu.be/EJpMVdGQpOc
 
 This is a really gorgeous track, that was completely overshadowed by Van Dyk's other 1994 masterpiece: For an Angel. Understandably overshadowed, but this one is pretty good too.
 
-Caunos - Herzsprung 1  
+Caunos - Herzsprung 1 https://youtu.be/kJVitdlwPWU
 
-Resistance D - Cosmic Love [1991] 
+Resistance D - Cosmic Love https://youtu.be/7M-ZPzJe_pc
 
-Veracocha - Carte Blanche 
+Veracocha - Carte Blanche https://youtu.be/LZSnoaLWCVU
 
-Tiesto & Junkie XL - Obsession
+Tiesto & Junkie XL - Obsession https://youtu.be/yTODkLro8gs
 
 Lazy Fat People - Club Silencio  
 
